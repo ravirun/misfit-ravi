@@ -1,18 +1,18 @@
-# Misfit Ravi - April 2027 Content Plan
+# Misfit Ravi - April 2027, Week 2 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### Why Society Rewards Loud Opinions Over Measured Ones
+### The Performative Expert: Confidence Without Competence
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why society rewards loud opinions over measured ones.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the performative expert: confidence without competence.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why society rewards loud opinions over measured ones
+   - Exploring the performative expert: confidence without competence
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why Society Rewards Loud Opinions Over Measured Ones is always relevant  
+✅ **Timeless Topic:** The Performative Expert: Confidence Without Competence is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*April 2027 - Micro Creator Phase*
+*Week 2, April 2027 - Micro Creator Phase*
