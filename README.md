@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2028, Week 4, Thursday Content Plan
+# Misfit Ravi - April 2028, Week 4, Friday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of main-character syndrome in politics
+### Why people romanticize their ideology
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of main-character syndrome in politics.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why people romanticize their ideology.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of main-character syndrome in politics
+   - Exploring why people romanticize their ideology
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of main-character syndrome in politics is always relevant  
+✅ **Timeless Topic:** Why people romanticize their ideology is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 4, April 2028 - Macro Creator Phase*
+*Friday, Week 4, April 2028 - Macro Creator Phase*
