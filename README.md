@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2029, Week 2, Thursday Content Plan
+# Misfit Ravi - November 2029, Week 2, Friday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why humans avoid responsibility
+### The burden on future generations
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on why humans avoid responsibility.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on the burden on future generations.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why humans avoid responsibility
+   - Exploring the burden on future generations
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why humans avoid responsibility is always relevant  
+✅ **Timeless Topic:** The burden on future generations is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 2, November 2029 - Mega Creator Phase*
+*Friday, Week 2, November 2029 - Mega Creator Phase*
