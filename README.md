@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2028, Week 2, Monday Content Plan
+# Misfit Ravi - March 2028, Week 2, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How attention fuels modern power
+### Why creators chase attention over earnings
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how attention fuels modern power.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why creators chase attention over earnings.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how attention fuels modern power
+   - Exploring why creators chase attention over earnings
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How attention fuels modern power is always relevant  
+✅ **Timeless Topic:** Why creators chase attention over earnings is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 2, March 2028 - Macro Creator Phase*
+*Tuesday, Week 2, March 2028 - Macro Creator Phase*
