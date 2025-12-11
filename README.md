@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2026, Week 1, Saturday Content Plan
+# Misfit Ravi - June 2026, Week 1, Sunday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why perfectionism fuels overthinking
+### The humor in blowing things out of proportion
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why perfectionism fuels overthinking.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the humor in blowing things out of proportion.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why perfectionism fuels overthinking
+   - Exploring the humor in blowing things out of proportion
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why perfectionism fuels overthinking is always relevant  
+✅ **Timeless Topic:** The humor in blowing things out of proportion is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 1, June 2026 - Nano Creator Phase*
+*Sunday, Week 1, June 2026 - Nano Creator Phase*
