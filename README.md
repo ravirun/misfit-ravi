@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2026, Week 3, Monday Content Plan
+# Misfit Ravi - August 2026, Week 3, Tuesday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why negativity has higher engagement
+### How platforms monetize conflict
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why negativity has higher engagement.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how platforms monetize conflict.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why negativity has higher engagement
+   - Exploring how platforms monetize conflict
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why negativity has higher engagement is always relevant  
+✅ **Timeless Topic:** How platforms monetize conflict is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 3, August 2026 - Nano Creator Phase*
+*Tuesday, Week 3, August 2026 - Nano Creator Phase*
