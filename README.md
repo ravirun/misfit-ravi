@@ -1,4 +1,4 @@
-# Misfit Ravi - September 2028, Week 3, Friday Content Plan
+# Misfit Ravi - September 2028, Week 3, Saturday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How algorithms reinforce class systems
+### Why engagement determines social worth
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how algorithms reinforce class systems.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why engagement determines social worth.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how algorithms reinforce class systems
+   - Exploring why engagement determines social worth
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How algorithms reinforce class systems is always relevant  
+✅ **Timeless Topic:** Why engagement determines social worth is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 3, September 2028 - Macro Creator Phase*
+*Saturday, Week 3, September 2028 - Macro Creator Phase*
