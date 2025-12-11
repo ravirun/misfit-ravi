@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2026, Week 2, Thursday Content Plan
+# Misfit Ravi - June 2026, Week 2, Friday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Predicting disasters that never happen
+### Overplanning as emotional avoidance
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on predicting disasters that never happen.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on overplanning as emotional avoidance.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring predicting disasters that never happen
+   - Exploring overplanning as emotional avoidance
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Predicting disasters that never happen is always relevant  
+✅ **Timeless Topic:** Overplanning as emotional avoidance is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 2, June 2026 - Nano Creator Phase*
+*Friday, Week 2, June 2026 - Nano Creator Phase*
