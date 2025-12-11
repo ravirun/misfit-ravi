@@ -1,18 +1,18 @@
-# Misfit Ravi - December 2028 Content Plan
+# Misfit Ravi - December 2028, Week 1 Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### Year 3: What I Got Right, Wrong, and Ridiculously Wrong
+### My Biggest Creative Wins of the Year
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on year 3: what i got right, wrong, and ridiculously wrong.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on my biggest creative wins of the year.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring year 3: what i got right, wrong, and ridiculously wrong
+   - Exploring my biggest creative wins of the year
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Year 3: What I Got Right, Wrong, and Ridiculously Wrong is always relevant  
+✅ **Timeless Topic:** My Biggest Creative Wins of the Year is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*December 2028 - Macro Creator Phase*
+*Week 1, December 2028 - Macro Creator Phase*
