@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2026, Week 1, Thursday Content Plan
+# Misfit Ravi - July 2026, Week 1, Friday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Social media experts explained
+### The rise of armchair specialists
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on social media experts explained.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the rise of armchair specialists.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring social media experts explained
+   - Exploring the rise of armchair specialists
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Social media experts explained is always relevant  
+✅ **Timeless Topic:** The rise of armchair specialists is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 1, July 2026 - Nano Creator Phase*
+*Friday, Week 1, July 2026 - Nano Creator Phase*
