@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2027, Week 1, Monday Content Plan
+# Misfit Ravi - April 2027, Week 1, Tuesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why loud voices dominate quiet truth
+### The psychology of shouting opinions
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why loud voices dominate quiet truth.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the psychology of shouting opinions.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why loud voices dominate quiet truth
+   - Exploring the psychology of shouting opinions
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why loud voices dominate quiet truth is always relevant  
+✅ **Timeless Topic:** The psychology of shouting opinions is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 1, April 2027 - Micro Creator Phase*
+*Tuesday, Week 1, April 2027 - Micro Creator Phase*
