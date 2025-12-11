@@ -1,18 +1,18 @@
-# Misfit Ravi - March 2027 Content Plan
+# Misfit Ravi - March 2027, Week 2 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### Satire of Modern Dating Culture
+### Why "Situationships" Are Just Confusion With Branding
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of modern dating culture.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why "situationships" are just confusion with branding.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of modern dating culture
+   - Exploring why "situationships" are just confusion with branding
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of Modern Dating Culture is always relevant  
+✅ **Timeless Topic:** Why "Situationships" Are Just Confusion With Branding is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*March 2027 - Micro Creator Phase*
+*Week 2, March 2027 - Micro Creator Phase*
