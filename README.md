@@ -1,18 +1,18 @@
-# Misfit Ravi - July 2028 Content Plan
+# Misfit Ravi - July 2028, Week 1 Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Science of Going Viral—Explained Satirically
+### The Psychology Behind Viral Behavior
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the science of going viral—explained satirically.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the psychology behind viral behavior.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the science of going viral—explained satirically
+   - Exploring the psychology behind viral behavior
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Science of Going Viral—Explained Satirically is always relevant  
+✅ **Timeless Topic:** The Psychology Behind Viral Behavior is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*July 2028 - Macro Creator Phase*
+*Week 1, July 2028 - Macro Creator Phase*
