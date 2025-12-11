@@ -1,4 +1,4 @@
-# Misfit Ravi - May 2027, Week 4, Wednesday Content Plan
+# Misfit Ravi - May 2027, Week 4, Thursday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The comedy of grind culture rituals
+### Motivational clichés decoded
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the comedy of grind culture rituals.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on motivational clichés decoded.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the comedy of grind culture rituals
+   - Exploring motivational clichés decoded
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The comedy of grind culture rituals is always relevant  
+✅ **Timeless Topic:** Motivational clichés decoded is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 4, May 2027 - Micro Creator Phase*
+*Thursday, Week 4, May 2027 - Micro Creator Phase*
