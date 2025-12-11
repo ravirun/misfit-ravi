@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2026, Week 4, Wednesday Content Plan
+# Misfit Ravi - June 2026, Week 4, Thursday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Sabotaging peace with unnecessary worry
+### Overanalyzing harmless situations
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on sabotaging peace with unnecessary worry.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on overanalyzing harmless situations.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring sabotaging peace with unnecessary worry
+   - Exploring overanalyzing harmless situations
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Sabotaging peace with unnecessary worry is always relevant  
+✅ **Timeless Topic:** Overanalyzing harmless situations is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 4, June 2026 - Nano Creator Phase*
+*Thursday, Week 4, June 2026 - Nano Creator Phase*
