@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2027, Week 3, Thursday Content Plan
+# Misfit Ravi - July 2027, Week 3, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of fame-chasing behavior
+### Why attention feels safer than accountability
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of fame-chasing behavior.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why attention feels safer than accountability.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of fame-chasing behavior
+   - Exploring why attention feels safer than accountability
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of fame-chasing behavior is always relevant  
+✅ **Timeless Topic:** Why attention feels safer than accountability is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 3, July 2027 - Micro Creator Phase*
+*Friday, Week 3, July 2027 - Micro Creator Phase*
