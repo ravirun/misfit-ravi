@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2028, Week 3, Monday Content Plan
+# Misfit Ravi - April 2028, Week 3, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Political branding 101
+### Why campaigns mirror influencer strategies
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on political branding 101.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why campaigns mirror influencer strategies.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring political branding 101
+   - Exploring why campaigns mirror influencer strategies
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Political branding 101 is always relevant  
+✅ **Timeless Topic:** Why campaigns mirror influencer strategies is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 3, April 2028 - Macro Creator Phase*
+*Tuesday, Week 3, April 2028 - Macro Creator Phase*
