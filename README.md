@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2027, Week 3, Wednesday Content Plan
+# Misfit Ravi - April 2027, Week 3, Thursday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Short-form content killing nuance
+### Why oversimplification dominates
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on short-form content killing nuance.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why oversimplification dominates.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring short-form content killing nuance
+   - Exploring why oversimplification dominates
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Short-form content killing nuance is always relevant  
+✅ **Timeless Topic:** Why oversimplification dominates is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 3, April 2027 - Micro Creator Phase*
+*Thursday, Week 3, April 2027 - Micro Creator Phase*
