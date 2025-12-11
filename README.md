@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2026, Week 2, Friday Content Plan
+# Misfit Ravi - January 2026, Week 2, Saturday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Corporate language decoded (satire)
+### Why 'work-life balance' is a myth we repeat
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on corporate language decoded (satire).
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why 'work-life balance' is a myth we repeat.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring corporate language decoded (satire)
+   - Exploring why 'work-life balance' is a myth we repeat
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Corporate language decoded is always relevant  
+✅ **Timeless Topic:** Why 'work-life balance' is a myth we repeat is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 2, January 2026 - Nano Creator Phase*
+*Saturday, Week 2, January 2026 - Nano Creator Phase*
