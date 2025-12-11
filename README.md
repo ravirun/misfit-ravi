@@ -1,18 +1,18 @@
-# Misfit Ravi - October 2028 Content Plan
+# Misfit Ravi - October 2028, Week 1 Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Global Comedy of Consumerism
+### Why We Buy Things We Don't Need
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the global comedy of consumerism.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why we buy things we don't need.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the global comedy of consumerism
+   - Exploring why we buy things we don't need
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Global Comedy of Consumerism is always relevant  
+✅ **Timeless Topic:** Why We Buy Things We Don't Need is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*October 2028 - Macro Creator Phase*
+*Week 1, October 2028 - Macro Creator Phase*
