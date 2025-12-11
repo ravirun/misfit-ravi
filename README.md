@@ -1,18 +1,18 @@
-# Misfit Ravi - March 2028 Content Plan
+# Misfit Ravi - March 2028, Week 2 Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Attention Economy: How We Became the Product
+### Why Attention Is More Valuable Than Money
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the attention economy: how we became the product.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why attention is more valuable than money.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the attention economy: how we became the product
+   - Exploring why attention is more valuable than money
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Attention Economy: How We Became the Product is always relevant  
+✅ **Timeless Topic:** Why Attention Is More Valuable Than Money is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*March 2028 - Macro Creator Phase*
+*Week 2, March 2028 - Macro Creator Phase*
