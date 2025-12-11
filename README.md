@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2029, Week 2, Thursday Content Plan
+# Misfit Ravi - January 2029, Week 2, Friday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why humans love performative authority
+### The comedy of controlling things we can't
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on why humans love performative authority.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on the comedy of controlling things we can't.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why humans love performative authority
+   - Exploring the comedy of controlling things we can't
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why humans love performative authority is always relevant  
+✅ **Timeless Topic:** The comedy of controlling things we can't is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 2, January 2029 - Mega Creator Phase*
+*Friday, Week 2, January 2029 - Mega Creator Phase*
