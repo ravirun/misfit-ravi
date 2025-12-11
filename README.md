@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2027, Week 2, Tuesday Content Plan
+# Misfit Ravi - December 2027, Week 2, Wednesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### What changed at 100k
+### Why growth creates new challenges
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on what changed at 100k.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why growth creates new challenges.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring what changed at 100k
+   - Exploring why growth creates new challenges
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** What changed at 100k is always relevant  
+✅ **Timeless Topic:** Why growth creates new challenges is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 2, December 2027 - Micro Creator Phase*
+*Wednesday, Week 2, December 2027 - Micro Creator Phase*
