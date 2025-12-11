@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2028, Week 4, Saturday Content Plan
+# Misfit Ravi - March 2028, Week 4, Sunday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How platforms profit from your every interaction
+### Why digital labor is disguised as entertainment
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how platforms profit from your every interaction.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why digital labor is disguised as entertainment.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how platforms profit from your every interaction
+   - Exploring why digital labor is disguised as entertainment
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How platforms profit from your every interaction is always relevant  
+✅ **Timeless Topic:** Why digital labor is disguised as entertainment is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 4, March 2028 - Macro Creator Phase*
+*Sunday, Week 4, March 2028 - Macro Creator Phase*
