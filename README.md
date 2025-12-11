@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2027, Week 3, Saturday Content Plan
+# Misfit Ravi - June 2027, Week 3, Sunday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why 'busy' is a social currency
+### The illusion of being important
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why 'busy' is a social currency.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the illusion of being important.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why 'busy' is a social currency
+   - Exploring the illusion of being important
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why 'busy' is a social currency is always relevant  
+✅ **Timeless Topic:** The illusion of being important is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 3, June 2027 - Micro Creator Phase*
+*Sunday, Week 3, June 2027 - Micro Creator Phase*
