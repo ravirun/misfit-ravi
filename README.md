@@ -1,4 +1,4 @@
-# Misfit Ravi - September 2028, Week 3, Monday Content Plan
+# Misfit Ravi - September 2028, Week 3, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How unwritten rules shape status online
+### The power-ranking hierarchy of creators
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how unwritten rules shape status online.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the power-ranking hierarchy of creators.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how unwritten rules shape status online
+   - Exploring the power-ranking hierarchy of creators
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How unwritten rules shape status online is always relevant  
+✅ **Timeless Topic:** The power-ranking hierarchy of creators is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 3, September 2028 - Macro Creator Phase*
+*Tuesday, Week 3, September 2028 - Macro Creator Phase*
