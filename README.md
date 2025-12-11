@@ -1,5 +1,25 @@
-# Misfit Ravi - December 2027, Week 1, Saturday Content Plan
+# Misfit Ravi - December 06, 2027 (Monday) Content Plan
 
+---
+
+## 📅 Calendar Information
+
+**Actual Date:** December 06, 2027 (2027-12-06)  
+**Day of Week:** Monday  
+**Week:** Week 1 of December 2027  
+**Deadline:** December 06, 2027 at 11:59 PM (2027-12-06 23:59:59)
+
+---
+
+## ⏰ Branch Status
+
+**Status:** 🟢 ACTIVE  
+**Deadline:** December 06, 2027 at 11:59 PM  
+**Time Remaining:** 725 days, 4 hours, 47 minutes  
+
+> **Note:** This branch closes at 11:59 PM on December 06, 2027. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+
+---
 **Micro Creator (10k–100k followers)**
 
 ---
