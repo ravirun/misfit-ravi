@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2026, Week 4, Saturday Content Plan
+# Misfit Ravi - February 2026, Week 4, Sunday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why doing nothing is now a skill
+### Permission to rest without justification
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why doing nothing is now a skill.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on permission to rest without justification.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why doing nothing is now a skill
+   - Exploring permission to rest without justification
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why doing nothing is now a skill is always relevant  
+✅ **Timeless Topic:** Permission to rest without justification is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 4, February 2026 - Nano Creator Phase*
+*Sunday, Week 4, February 2026 - Nano Creator Phase*
