@@ -1,4 +1,4 @@
-# Misfit Ravi - May 2028, Week 2, Wednesday Content Plan
+# Misfit Ravi - May 2028, Week 2, Thursday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why society rewards the dream, not the result
+### How ideas become idolized
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why society rewards the dream, not the result.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how ideas become idolized.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why society rewards the dream, not the result
+   - Exploring how ideas become idolized
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why society rewards the dream, not the result is always relevant  
+✅ **Timeless Topic:** How ideas become idolized is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 2, May 2028 - Macro Creator Phase*
+*Thursday, Week 2, May 2028 - Macro Creator Phase*
