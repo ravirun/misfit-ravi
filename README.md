@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2027, Week 3, Wednesday Content Plan
+# Misfit Ravi - November 2027, Week 3, Thursday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of hype culture
+### Why motivation fades after 10 minutes
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of hype culture.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why motivation fades after 10 minutes.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of hype culture
+   - Exploring why motivation fades after 10 minutes
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of hype culture is always relevant  
+✅ **Timeless Topic:** Why motivation fades after 10 minutes is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 3, November 2027 - Micro Creator Phase*
+*Thursday, Week 3, November 2027 - Micro Creator Phase*
