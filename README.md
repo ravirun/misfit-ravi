@@ -1,18 +1,18 @@
-# Misfit Ravi - May 2026 Content Plan
+# Misfit Ravi - May 2026, Week 2 Content Plan
 
 **Nano Creator (1k–10k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### Why Adults Are Just Children With Wi-Fi
+### How Adults Throw Tantrums… Professionally
 
 ---
 
 ## Topic Overview
 
-A satirical exploration of how adults haven't really changed from children—we just have more responsibilities and better internet access.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how adults throw tantrums… professionally.
 
 ---
 
@@ -44,7 +44,7 @@ A satirical exploration of how adults haven't really changed from children—we 
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why adults are just children with wi-fi
+   - Exploring how adults throw tantrums… professionally
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ A satirical exploration of how adults haven't really changed from children—we 
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why Adults Are Just Children With Wi-Fi is always relevant  
+✅ **Timeless Topic:** How Adults Throw Tantrums… Professionally is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ A satirical exploration of how adults haven't really changed from children—we 
 ---
 
 *Building something timeless, one video at a time.*  
-*May 2026 - Nano Creator Phase*
+*Week 2, May 2026 - Nano Creator Phase*
