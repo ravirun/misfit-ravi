@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2027, Week 4, Saturday Content Plan
+# Misfit Ravi - April 2027, Week 4, Sunday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Bad opinions as entertainment
+### Satire of viral stupidity
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on bad opinions as entertainment.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of viral stupidity.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring bad opinions as entertainment
+   - Exploring satire of viral stupidity
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Bad opinions as entertainment is always relevant  
+✅ **Timeless Topic:** Satire of viral stupidity is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 4, April 2027 - Micro Creator Phase*
+*Sunday, Week 4, April 2027 - Micro Creator Phase*
