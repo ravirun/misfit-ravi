@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2027, Week 3, Monday Content Plan
+# Misfit Ravi - December 2027, Week 3, Tuesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### What the audience cared about most
+### What resonated unexpectedly
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on what the audience cared about most.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on what resonated unexpectedly.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring what the audience cared about most
+   - Exploring what resonated unexpectedly
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** What the audience cared about most is always relevant  
+✅ **Timeless Topic:** What resonated unexpectedly is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 3, December 2027 - Micro Creator Phase*
+*Tuesday, Week 3, December 2027 - Micro Creator Phase*
