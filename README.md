@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2028, Week 4, Monday Content Plan
+# Misfit Ravi - October 2028, Week 4, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why materialism never satisfies
+### The loop of buy → feel good → regret
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why materialism never satisfies.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the loop of buy → feel good → regret.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why materialism never satisfies
+   - Exploring the loop of buy → feel good → regret
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why materialism never satisfies is always relevant  
+✅ **Timeless Topic:** The loop of buy → feel good → regret is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 4, October 2028 - Macro Creator Phase*
+*Tuesday, Week 4, October 2028 - Macro Creator Phase*
