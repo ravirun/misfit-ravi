@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2028, Week 3, Friday Content Plan
+# Misfit Ravi - April 2028, Week 3, Saturday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why politics relies on storytelling
+### The psychology behind political image crafting
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why politics relies on storytelling.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the psychology behind political image crafting.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why politics relies on storytelling
+   - Exploring the psychology behind political image crafting
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why politics relies on storytelling is always relevant  
+✅ **Timeless Topic:** The psychology behind political image crafting is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 3, April 2028 - Macro Creator Phase*
+*Saturday, Week 3, April 2028 - Macro Creator Phase*
