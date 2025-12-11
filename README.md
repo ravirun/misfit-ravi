@@ -1,4 +1,4 @@
-# Misfit Ravi - May 2027, Week 2, Saturday Content Plan
+# Misfit Ravi - May 2027, Week 2, Sunday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The unhealthy pursuit of constant progress
+### Why burnout feels like achievement
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the unhealthy pursuit of constant progress.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why burnout feels like achievement.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the unhealthy pursuit of constant progress
+   - Exploring why burnout feels like achievement
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The unhealthy pursuit of constant progress is always relevant  
+✅ **Timeless Topic:** Why burnout feels like achievement is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 2, May 2027 - Micro Creator Phase*
+*Sunday, Week 2, May 2027 - Micro Creator Phase*
