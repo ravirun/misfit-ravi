@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2027, Week 3, Monday Content Plan
+# Misfit Ravi - November 2027, Week 3, Tuesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why motivation doesn't last
+### The dopamine hit of inspirational content
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why motivation doesn't last.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the dopamine hit of inspirational content.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why motivation doesn't last
+   - Exploring the dopamine hit of inspirational content
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why motivation doesn't last is always relevant  
+✅ **Timeless Topic:** The dopamine hit of inspirational content is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 3, November 2027 - Micro Creator Phase*
+*Tuesday, Week 3, November 2027 - Micro Creator Phase*
