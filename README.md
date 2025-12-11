@@ -1,18 +1,18 @@
-# Misfit Ravi - December 2027 Content Plan
+# Misfit Ravi - December 2027, Week 2 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### Year 2: How Creating Content Changed My Brain
+### What I Learned From Growing 10k → 100k
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on year 2: how creating content changed my brain.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on what i learned from growing 10k → 100k.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring year 2: how creating content changed my brain
+   - Exploring what i learned from growing 10k → 100k
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Year 2: How Creating Content Changed My Brain is always relevant  
+✅ **Timeless Topic:** What I Learned From Growing 10k → 100k is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*December 2027 - Micro Creator Phase*
+*Week 2, December 2027 - Micro Creator Phase*
