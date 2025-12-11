@@ -1,18 +1,18 @@
-# Misfit Ravi - June 2027 Content Plan
+# Misfit Ravi - June 2027, Week 4 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Comedy of Corporate Life
+### Why Promotions Don't Equal Purpose
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the comedy of corporate life.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why promotions don't equal purpose.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the comedy of corporate life
+   - Exploring why promotions don't equal purpose
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Comedy of Corporate Life is always relevant  
+✅ **Timeless Topic:** Why Promotions Don't Equal Purpose is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*June 2027 - Micro Creator Phase*
+*Week 4, June 2027 - Micro Creator Phase*
