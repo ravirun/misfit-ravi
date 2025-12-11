@@ -1,18 +1,18 @@
-# Misfit Ravi - November 2027 Content Plan
+# Misfit Ravi - November 2027, Week 4 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Satire of Self-Help Addiction
+### The Comedy Behind "New Year, New Me" Culture
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the satire of self-help addiction.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the comedy behind "new year, new me" culture.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the satire of self-help addiction
+   - Exploring the comedy behind "new year, new me" culture
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Satire of Self-Help Addiction is always relevant  
+✅ **Timeless Topic:** The Comedy Behind "New Year, New Me" Culture is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*November 2027 - Micro Creator Phase*
+*Week 4, November 2027 - Micro Creator Phase*
