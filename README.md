@@ -1,18 +1,18 @@
-# Misfit Ravi - December 2026 Content Plan
+# Misfit Ravi - December 2026, Week 3 Content Plan
 
 **Nano Creator (1k–10k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### What I Learned Trying to Be a Creator for 12 Months
+### Lessons From My Best & Worst Performing Videos
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on what i learned trying to be a creator for 12 months.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on lessons from my best & worst performing videos.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring what i learned trying to be a creator for 12 months
+   - Exploring lessons from my best & worst performing videos
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** What I Learned Trying to Be a Creator for 12 Months is always relevant  
+✅ **Timeless Topic:** Lessons From My Best & Worst Performing Videos is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*December 2026 - Nano Creator Phase*
+*Week 3, December 2026 - Nano Creator Phase*
