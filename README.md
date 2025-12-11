@@ -3,6 +3,7 @@
 
 
 
+
 ---
 
 ## 📅 Calendar Information
@@ -18,9 +19,9 @@
 
 **Status:** 🟢 ACTIVE  
 **Deadline:** February 01, 2027 at 11:59 PM  
-**Time Remaining:** 417 days, 4 hours, 37 minutes  
+**Time Remaining:** 417 days, 4 hours, 36 minutes  
 
-> **Note:** This branch closes at 11:59 PM on February 01, 2027. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+> **Note:** This branch closes at 11:59 PM IST (Mumbai Time) on February 01, 2027. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
 
 ---
 **Micro Creator (10k–100k followers)**
