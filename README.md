@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2027, Week 4, Thursday Content Plan
+# Misfit Ravi - November 2027, Week 4, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why people abandon goals by February
+### The psychology of fresh-start energy
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why people abandon goals by february.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the psychology of fresh-start energy.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why people abandon goals by february
+   - Exploring the psychology of fresh-start energy
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why people abandon goals by February is always relevant  
+✅ **Timeless Topic:** The psychology of fresh-start energy is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 4, November 2027 - Micro Creator Phase*
+*Friday, Week 4, November 2027 - Micro Creator Phase*
