@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2028, Week 4, Monday Content Plan
+# Misfit Ravi - June 2028, Week 4, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Predictions for a hilariously chaotic future
+### Why future humans will roast us
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on predictions for a hilariously chaotic future.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why future humans will roast us.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring predictions for a hilariously chaotic future
+   - Exploring why future humans will roast us
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Predictions for a hilariously chaotic future is always relevant  
+✅ **Timeless Topic:** Why future humans will roast us is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 4, June 2028 - Macro Creator Phase*
+*Tuesday, Week 4, June 2028 - Macro Creator Phase*
