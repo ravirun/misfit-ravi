@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2028, Week 1, Saturday Content Plan
+# Misfit Ravi - December 2028, Week 1, Sunday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why experimentation paid off
+### The content moments I'm proud of
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why experimentation paid off.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the content moments i'm proud of.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why experimentation paid off
+   - Exploring the content moments i'm proud of
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why experimentation paid off is always relevant  
+✅ **Timeless Topic:** The content moments I'm proud of is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 1, December 2028 - Macro Creator Phase*
+*Sunday, Week 1, December 2028 - Macro Creator Phase*
