@@ -1,18 +1,18 @@
-# Misfit Ravi - September 2027 Content Plan
+# Misfit Ravi - September 2027, Week 2 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Business of Outrage Machines
+### Why Anger Travels Faster Than Truth
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the business of outrage machines.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why anger travels faster than truth.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the business of outrage machines
+   - Exploring why anger travels faster than truth
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Business of Outrage Machines is always relevant  
+✅ **Timeless Topic:** Why Anger Travels Faster Than Truth is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*September 2027 - Micro Creator Phase*
+*Week 2, September 2027 - Micro Creator Phase*
