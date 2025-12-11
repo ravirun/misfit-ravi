@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2029, Week 2, Thursday Content Plan
+# Misfit Ravi - July 2029, Week 2, Friday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of talentless fame
+### How attention drives brand deals
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on satire of talentless fame.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on how attention drives brand deals.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of talentless fame
+   - Exploring how attention drives brand deals
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of talentless fame is always relevant  
+✅ **Timeless Topic:** How attention drives brand deals is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 2, July 2029 - Mega Creator Phase*
+*Friday, Week 2, July 2029 - Mega Creator Phase*
