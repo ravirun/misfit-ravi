@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2028, Week 3, Friday Content Plan
+# Misfit Ravi - June 2028, Week 3, Saturday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of well-intentioned disasters
+### How optimism blinds judgment
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of well-intentioned disasters.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how optimism blinds judgment.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of well-intentioned disasters
+   - Exploring how optimism blinds judgment
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of well-intentioned disasters is always relevant  
+✅ **Timeless Topic:** How optimism blinds judgment is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 3, June 2028 - Macro Creator Phase*
+*Saturday, Week 3, June 2028 - Macro Creator Phase*
