@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2028, Week 2, Thursday Content Plan
+# Misfit Ravi - November 2028, Week 2, Friday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The absurdity of current obsessions
+### What will confuse future historians
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the absurdity of current obsessions.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on what will confuse future historians.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the absurdity of current obsessions
+   - Exploring what will confuse future historians
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The absurdity of current obsessions is always relevant  
+✅ **Timeless Topic:** What will confuse future historians is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 2, November 2028 - Macro Creator Phase*
+*Friday, Week 2, November 2028 - Macro Creator Phase*
