@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2027, Week 1, Wednesday Content Plan
+# Misfit Ravi - April 2027, Week 1, Thursday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How platforms promote emotional extremes
+### Why logic loses to sensationalism
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how platforms promote emotional extremes.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why logic loses to sensationalism.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how platforms promote emotional extremes
+   - Exploring why logic loses to sensationalism
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How platforms promote emotional extremes is always relevant  
+✅ **Timeless Topic:** Why logic loses to sensationalism is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 1, April 2027 - Micro Creator Phase*
+*Thursday, Week 1, April 2027 - Micro Creator Phase*
