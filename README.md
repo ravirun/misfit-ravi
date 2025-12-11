@@ -1,5 +1,25 @@
-# Misfit Ravi - November 2028, Week 2, Friday Content Plan
+# Misfit Ravi - November 12, 2028 (Sunday) Content Plan
 
+---
+
+## 📅 Calendar Information
+
+**Actual Date:** November 12, 2028 (2028-11-12)  
+**Day of Week:** Sunday  
+**Week:** Week 2 of November 2028  
+**Deadline:** November 12, 2028 at 11:59 PM (2028-11-12 23:59:59)
+
+---
+
+## ⏰ Branch Status
+
+**Status:** 🟢 ACTIVE  
+**Deadline:** November 12, 2028 at 11:59 PM  
+**Time Remaining:** 1067 days, 4 hours, 47 minutes  
+
+> **Note:** This branch closes at 11:59 PM on November 12, 2028. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+
+---
 **Macro Creator (100k–1M followers)**
 
 ---
