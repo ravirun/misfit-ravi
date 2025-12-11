@@ -3,6 +3,7 @@
 
 
 
+
 ---
 
 ## 📅 Calendar Information
@@ -18,9 +19,9 @@
 
 **Status:** 🟢 ACTIVE  
 **Deadline:** June 16, 2029 at 11:59 PM  
-**Time Remaining:** 1283 days, 4 hours, 37 minutes  
+**Time Remaining:** 1283 days, 4 hours, 35 minutes  
 
-> **Note:** This branch closes at 11:59 PM on June 16, 2029. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+> **Note:** This branch closes at 11:59 PM IST (Mumbai Time) on June 16, 2029. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
 
 ---
 **Mega Creator (1M+ followers)**
