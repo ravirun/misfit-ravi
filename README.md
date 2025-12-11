@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2028, Week 4, Tuesday Content Plan
+# Misfit Ravi - February 2028, Week 4, Wednesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How values collapse under convenience
+### The humor in everyday double standards
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how values collapse under convenience.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the humor in everyday double standards.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how values collapse under convenience
+   - Exploring the humor in everyday double standards
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How values collapse under convenience is always relevant  
+✅ **Timeless Topic:** The humor in everyday double standards is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 4, February 2028 - Macro Creator Phase*
+*Wednesday, Week 4, February 2028 - Macro Creator Phase*
