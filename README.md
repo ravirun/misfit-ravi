@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2026, Week 3, Monday Content Plan
+# Misfit Ravi - October 2026, Week 3, Tuesday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How scrolling hijacks the brain
+### Why we scroll unconsciously
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how scrolling hijacks the brain.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why we scroll unconsciously.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how scrolling hijacks the brain
+   - Exploring why we scroll unconsciously
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How scrolling hijacks the brain is always relevant  
+✅ **Timeless Topic:** Why we scroll unconsciously is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 3, October 2026 - Nano Creator Phase*
+*Tuesday, Week 3, October 2026 - Nano Creator Phase*
