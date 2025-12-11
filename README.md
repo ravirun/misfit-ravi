@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2028, Week 4, Wednesday Content Plan
+# Misfit Ravi - April 2028, Week 4, Thursday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How bias shapes political identity
+### Satire of main-character syndrome in politics
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how bias shapes political identity.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of main-character syndrome in politics.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how bias shapes political identity
+   - Exploring satire of main-character syndrome in politics
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How bias shapes political identity is always relevant  
+✅ **Timeless Topic:** Satire of main-character syndrome in politics is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 4, April 2028 - Macro Creator Phase*
+*Thursday, Week 4, April 2028 - Macro Creator Phase*
