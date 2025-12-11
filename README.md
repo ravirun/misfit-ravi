@@ -1,5 +1,25 @@
-# Misfit Ravi - September 2027, Week 3, Friday Content Plan
+# Misfit Ravi - September 19, 2027 (Sunday) Content Plan
 
+---
+
+## 📅 Calendar Information
+
+**Actual Date:** September 19, 2027 (2027-09-19)  
+**Day of Week:** Sunday  
+**Week:** Week 3 of September 2027  
+**Deadline:** September 19, 2027 at 11:59 PM (2027-09-19 23:59:59)
+
+---
+
+## ⏰ Branch Status
+
+**Status:** 🟢 ACTIVE  
+**Deadline:** September 19, 2027 at 11:59 PM  
+**Time Remaining:** 647 days, 4 hours, 47 minutes  
+
+> **Note:** This branch closes at 11:59 PM on September 19, 2027. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+
+---
 **Micro Creator (10k–100k followers)**
 
 ---
