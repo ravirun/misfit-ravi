@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2028, Week 1, Saturday Content Plan
+# Misfit Ravi - July 2028, Week 1, Sunday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The neurochemistry of viral pleasure
+### Why humans crave collective experiences
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the neurochemistry of viral pleasure.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why humans crave collective experiences.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the neurochemistry of viral pleasure
+   - Exploring why humans crave collective experiences
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The neurochemistry of viral pleasure is always relevant  
+✅ **Timeless Topic:** Why humans crave collective experiences is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 1, July 2028 - Macro Creator Phase*
+*Sunday, Week 1, July 2028 - Macro Creator Phase*
