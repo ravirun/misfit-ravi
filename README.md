@@ -1,4 +1,4 @@
-# Misfit Ravi - May 2026 Content Plan
+# Misfit Ravi - June 2026 Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,13 +6,13 @@
 
 ## Content Topic
 
-### Why Adults Are Just Children With Wi-Fi
+### The Psychology Behind Overthinking Everything
 
 ---
 
 ## Topic Overview
 
-A satirical exploration of how adults haven't really changed from children—we just have more responsibilities and better internet access.
+A satirical deep dive into why we overthink everything, the psychology behind it, and the comedy of our mental loops.
 
 ---
 
@@ -20,10 +20,10 @@ A satirical exploration of how adults haven't really changed from children—we 
 
 ### Key Themes
 
-- How adults are still children at heart
-- The facade of maturity
-- Childlike behaviors in adults
-- The comedy of adulting
+- Why we overthink simple things
+- The psychology of analysis paralysis
+- Mental loops and how we get stuck
+- The comedy of overthinking
 
 ### Satirical Angle
 
@@ -43,40 +43,31 @@ A satirical exploration of how adults haven't really changed from children—we 
 
 ## Key Points to Cover
 
-1. **Adults as Children**
-   - How we haven't really changed
-   - Childlike behaviors in adults
-   - The facade of maturity
+1. **The Overthinking Problem**
+   - Why we do it
+   - When it happens
+   - How it affects us
 
-2. **The Wi-Fi Difference**
-   - What technology adds
-   - How it changes behavior
-   - The comedy of it all
+2. **The Psychology**
+   - What's happening in our brains
+   - Why it's so common
+   - The patterns we follow
 
 3. **The Satire**
    - Making fun of ourselves
-   - Pointing out the truth
-   - Finding humor in adulting
+   - Finding humor in the loops
+   - Relatable moments
 
 ---
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Adult behavior is always relevant  
-✅ **Universal Appeal:** Everyone can relate to this  
+✅ **Timeless Topic:** Overthinking is always relevant  
+✅ **Universal Appeal:** Everyone experiences this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
 
 ---
 
-## Success Metrics
-
-- **Engagement:** Comments from people saying "this is so true"
-- **Shares:** People sharing because it resonates
-- **Watch Time:** High retention on relatable moments
-- **Community:** Building connection through shared observations
-
----
-
 *Building something timeless, one video at a time.*  
-*May 2026 - Nano Creator Phase*
+*June 2026 - Nano Creator Phase*
