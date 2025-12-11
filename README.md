@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2026, Week 4, Saturday Content Plan
+# Misfit Ravi - June 2026, Week 4, Sunday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Letting fear ruin calm moments
+### A satirical survival guide for overthinkers
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on letting fear ruin calm moments.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on a satirical survival guide for overthinkers.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring letting fear ruin calm moments
+   - Exploring a satirical survival guide for overthinkers
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Letting fear ruin calm moments is always relevant  
+✅ **Timeless Topic:** A satirical survival guide for overthinkers is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 4, June 2026 - Nano Creator Phase*
+*Sunday, Week 4, June 2026 - Nano Creator Phase*
