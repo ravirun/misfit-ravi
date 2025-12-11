@@ -1,4 +1,4 @@
-# Misfit Ravi - May 2027, Week 2, Thursday Content Plan
+# Misfit Ravi - May 2027, Week 2, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why rest feels unproductive
+### Satire of productivity addiction
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why rest feels unproductive.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of productivity addiction.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why rest feels unproductive
+   - Exploring satire of productivity addiction
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why rest feels unproductive is always relevant  
+✅ **Timeless Topic:** Satire of productivity addiction is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 2, May 2027 - Micro Creator Phase*
+*Friday, Week 2, May 2027 - Micro Creator Phase*
