@@ -1,18 +1,18 @@
-# Misfit Ravi - June 2027 Content Plan
+# Misfit Ravi - June 2027, Week 3 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Comedy of Corporate Life
+### The Psychology of Acting Busy
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the comedy of corporate life.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the psychology of acting busy.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the comedy of corporate life
+   - Exploring the psychology of acting busy
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Comedy of Corporate Life is always relevant  
+✅ **Timeless Topic:** The Psychology of Acting Busy is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*June 2027 - Micro Creator Phase*
+*Week 3, June 2027 - Micro Creator Phase*
