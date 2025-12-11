@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2027, Week 4, Tuesday Content Plan
+# Misfit Ravi - February 2027, Week 4, Wednesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Winners and losers in the attention economy
+### Why outrage wins attention
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on winners and losers in the attention economy.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why outrage wins attention.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring winners and losers in the attention economy
+   - Exploring why outrage wins attention
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Winners and losers in the attention economy is always relevant  
+✅ **Timeless Topic:** Why outrage wins attention is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 4, February 2027 - Micro Creator Phase*
+*Wednesday, Week 4, February 2027 - Micro Creator Phase*
