@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2027, Week 3, Saturday Content Plan
+# Misfit Ravi - November 2027, Week 3, Sunday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why we consume but rarely act
+### Motivation as entertainment
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why we consume but rarely act.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on motivation as entertainment.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why we consume but rarely act
+   - Exploring motivation as entertainment
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why we consume but rarely act is always relevant  
+✅ **Timeless Topic:** Motivation as entertainment is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 3, November 2027 - Micro Creator Phase*
+*Sunday, Week 3, November 2027 - Micro Creator Phase*
