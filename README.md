@@ -1,4 +1,4 @@
-# Misfit Ravi - September 2027, Week 1, Thursday Content Plan
+# Misfit Ravi - September 2027, Week 1, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The economics of emotional manipulation
+### Why anger sells better than truth
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the economics of emotional manipulation.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why anger sells better than truth.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the economics of emotional manipulation
+   - Exploring why anger sells better than truth
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The economics of emotional manipulation is always relevant  
+✅ **Timeless Topic:** Why anger sells better than truth is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 1, September 2027 - Micro Creator Phase*
+*Friday, Week 1, September 2027 - Micro Creator Phase*
