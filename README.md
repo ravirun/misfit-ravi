@@ -1,5 +1,25 @@
-# Misfit Ravi - January 2029, Week 2, Sunday Content Plan
+# Misfit Ravi - January 14, 2029 (Sunday) Content Plan
 
+---
+
+## 📅 Calendar Information
+
+**Actual Date:** January 14, 2029 (2029-01-14)  
+**Day of Week:** Sunday  
+**Week:** Week 2 of January 2029  
+**Deadline:** January 14, 2029 at 11:59 PM (2029-01-14 23:59:59)
+
+---
+
+## ⏰ Branch Status
+
+**Status:** 🟢 ACTIVE  
+**Deadline:** January 14, 2029 at 11:59 PM  
+**Time Remaining:** 1130 days, 4 hours, 47 minutes  
+
+> **Note:** This branch closes at 11:59 PM on January 14, 2029. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+
+---
 **Mega Creator (1M+ followers)**
 
 ---
