@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2028, Week 4, Monday Content Plan
+# Misfit Ravi - November 2028, Week 4, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Objects that represent the 2020s
+### Quotes future generations will mock
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on objects that represent the 2020s.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on quotes future generations will mock.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring objects that represent the 2020s
+   - Exploring quotes future generations will mock
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Objects that represent the 2020s is always relevant  
+✅ **Timeless Topic:** Quotes future generations will mock is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 4, November 2028 - Macro Creator Phase*
+*Tuesday, Week 4, November 2028 - Macro Creator Phase*
