@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2029, Week 3, Tuesday Content Plan
+# Misfit Ravi - August 2029, Week 3, Wednesday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How historians simplify complex declines
+### Satire of 'we should have known' attitudes
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on how historians simplify complex declines.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on satire of 'we should have known' attitudes.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how historians simplify complex declines
+   - Exploring satire of 'we should have known' attitudes
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How historians simplify complex declines is always relevant  
+✅ **Timeless Topic:** Satire of 'we should have known' attitudes is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 3, August 2029 - Mega Creator Phase*
+*Wednesday, Week 3, August 2029 - Mega Creator Phase*
