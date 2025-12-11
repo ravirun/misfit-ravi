@@ -3,6 +3,7 @@
 
 
 
+
 ---
 
 ## 📅 Calendar Information
@@ -18,9 +19,9 @@
 
 **Status:** 🟢 ACTIVE  
 **Deadline:** May 05, 2028 at 11:59 PM  
-**Time Remaining:** 876 days, 4 hours, 37 minutes  
+**Time Remaining:** 876 days, 4 hours, 35 minutes  
 
-> **Note:** This branch closes at 11:59 PM on May 05, 2028. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+> **Note:** This branch closes at 11:59 PM IST (Mumbai Time) on May 05, 2028. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
 
 ---
 **Macro Creator (100k–1M followers)**
