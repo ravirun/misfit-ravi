@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2027, Week 4, Tuesday Content Plan
+# Misfit Ravi - June 2027, Week 4, Wednesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The myth of corporate fulfillment
+### How promotions don't solve existential dread
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the myth of corporate fulfillment.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how promotions don't solve existential dread.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the myth of corporate fulfillment
+   - Exploring how promotions don't solve existential dread
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The myth of corporate fulfillment is always relevant  
+✅ **Timeless Topic:** How promotions don't solve existential dread is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 4, June 2027 - Micro Creator Phase*
+*Wednesday, Week 4, June 2027 - Micro Creator Phase*
