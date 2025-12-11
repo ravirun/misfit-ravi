@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2028, Week 2, Monday Content Plan
+# Misfit Ravi - June 2028, Week 2, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why tech magnifies human error
+### How tools increase complexity
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why tech magnifies human error.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how tools increase complexity.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why tech magnifies human error
+   - Exploring how tools increase complexity
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why tech magnifies human error is always relevant  
+✅ **Timeless Topic:** How tools increase complexity is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 2, June 2028 - Macro Creator Phase*
+*Tuesday, Week 2, June 2028 - Macro Creator Phase*
