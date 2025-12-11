@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2027, Week 2, Thursday Content Plan
+# Misfit Ravi - August 2027, Week 2, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How algorithmic fluctuations impact confidence
+### The paranoia of shadow banning
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how algorithmic fluctuations impact confidence.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the paranoia of shadow banning.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how algorithmic fluctuations impact confidence
+   - Exploring the paranoia of shadow banning
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How algorithmic fluctuations impact confidence is always relevant  
+✅ **Timeless Topic:** The paranoia of shadow banning is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 2, August 2027 - Micro Creator Phase*
+*Friday, Week 2, August 2027 - Micro Creator Phase*
