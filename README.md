@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2029, Week 2, Monday Content Plan
+# Misfit Ravi - January 2029, Week 2, Tuesday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why control is a psychological magic trick
+### How leaders pretend to know what's happening
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on why control is a psychological magic trick.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on how leaders pretend to know what's happening.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why control is a psychological magic trick
+   - Exploring how leaders pretend to know what's happening
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why control is a psychological magic trick is always relevant  
+✅ **Timeless Topic:** How leaders pretend to know what's happening is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 2, January 2029 - Mega Creator Phase*
+*Tuesday, Week 2, January 2029 - Mega Creator Phase*
