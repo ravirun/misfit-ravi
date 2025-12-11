@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2028, Week 1, Tuesday Content Plan
+# Misfit Ravi - October 2028, Week 1, Wednesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why consumption replaces happiness
+### How ads exploit emotional voids
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why consumption replaces happiness.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how ads exploit emotional voids.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why consumption replaces happiness
+   - Exploring how ads exploit emotional voids
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why consumption replaces happiness is always relevant  
+✅ **Timeless Topic:** How ads exploit emotional voids is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 1, October 2028 - Macro Creator Phase*
+*Wednesday, Week 1, October 2028 - Macro Creator Phase*
