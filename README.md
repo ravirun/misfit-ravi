@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2027, Week 1, Thursday Content Plan
+# Misfit Ravi - November 2027, Week 1, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of endless self-help consumption
+### The illusion of progress through reading
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of endless self-help consumption.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the illusion of progress through reading.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of endless self-help consumption
+   - Exploring the illusion of progress through reading
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of endless self-help consumption is always relevant  
+✅ **Timeless Topic:** The illusion of progress through reading is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 1, November 2027 - Micro Creator Phase*
+*Friday, Week 1, November 2027 - Micro Creator Phase*
