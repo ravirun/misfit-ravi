@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2027, Week 1, Friday Content Plan
+# Misfit Ravi - October 2027, Week 1, Saturday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The disappearing art of being present
+### Satire of hyperactivity culture
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the disappearing art of being present.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of hyperactivity culture.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the disappearing art of being present
+   - Exploring satire of hyperactivity culture
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The disappearing art of being present is always relevant  
+✅ **Timeless Topic:** Satire of hyperactivity culture is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 1, October 2027 - Micro Creator Phase*
+*Saturday, Week 1, October 2027 - Micro Creator Phase*
