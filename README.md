@@ -1,4 +1,8 @@
-# Misfit Ravi - June 2026, Week 1, Monday Content Plan
+# Misfit Ravi - June 01, 2026 (Monday) Content Plan
+**Actual Date:** June 01, 2026 (2026-06-01)  
+**Day of Week:** Monday  
+**Week Number:** 1  
+**Month:** June 2026
 
 **Nano Creator (1k–10k followers)**
 
@@ -76,4 +80,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 1, June 2026 - Nano Creator Phase*
+*June 01, 2026 (Monday) - Nano Creator Phase*
