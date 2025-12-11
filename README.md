@@ -1,9 +1,25 @@
-# Misfit Ravi - January 16, 2026 (Friday) Content Plan
-**Actual Date:** January 16, 2026 (2026-01-16)  
-**Day of Week:** Friday  
-**Week Number:** 2  
-**Month:** January 2026
+# Misfit Ravi - January 12, 2026 (Monday) Content Plan
 
+---
+
+## 📅 Calendar Information
+
+**Actual Date:** January 12, 2026 (2026-01-12)  
+**Day of Week:** Monday  
+**Week:** Week 2 of January 2026  
+**Deadline:** January 12, 2026 at 11:59 PM (2026-01-12 23:59:59)
+
+---
+
+## ⏰ Branch Status
+
+**Status:** 🟢 ACTIVE  
+**Deadline:** January 12, 2026 at 11:59 PM  
+**Time Remaining:** 32 days, 4 hours, 48 minutes  
+
+> **Note:** This branch closes at 11:59 PM on January 12, 2026. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+
+---
 **Nano Creator (1k–10k followers)**
 
 ---
