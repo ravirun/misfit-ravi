@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2027, Week 4, Saturday Content Plan
+# Misfit Ravi - March 2027, Week 4, Sunday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The Yelp-review mentality of relationships
+### Satire of transactional affection
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the yelp-review mentality of relationships.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of transactional affection.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the yelp-review mentality of relationships
+   - Exploring satire of transactional affection
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Yelp-review mentality of relationships is always relevant  
+✅ **Timeless Topic:** Satire of transactional affection is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 4, March 2027 - Micro Creator Phase*
+*Sunday, Week 4, March 2027 - Micro Creator Phase*
