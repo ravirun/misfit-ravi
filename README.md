@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2026, Week 1, Friday Content Plan
+# Misfit Ravi - March 2026, Week 1, Saturday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How creativity became currency
+### Why people work harder for algorithms than bosses
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how creativity became currency.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why people work harder for algorithms than bosses.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how creativity became currency
+   - Exploring why people work harder for algorithms than bosses
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How creativity became currency is always relevant  
+✅ **Timeless Topic:** Why people work harder for algorithms than bosses is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 1, March 2026 - Nano Creator Phase*
+*Saturday, Week 1, March 2026 - Nano Creator Phase*
