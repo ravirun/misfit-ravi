@@ -1,18 +1,18 @@
-# Misfit Ravi - October 2027 Content Plan
+# Misfit Ravi - October 2027, Week 4 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### Why We Fear Boredom (More Than Failure)
+### Boredom as a Superpower in the Attention Age
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why we fear boredom (more than failure).
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on boredom as a superpower in the attention age.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why we fear boredom (more than failure)
+   - Exploring boredom as a superpower in the attention age
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why We Fear Boredom is always relevant  
+✅ **Timeless Topic:** Boredom as a Superpower in the Attention Age is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*October 2027 - Micro Creator Phase*
+*Week 4, October 2027 - Micro Creator Phase*
