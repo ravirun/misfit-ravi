@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2026, Week 4, Tuesday Content Plan
+# Misfit Ravi - July 2026, Week 4, Wednesday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Learning publicly as a skill
+### The comedy of pretending to know more
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on learning publicly as a skill.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the comedy of pretending to know more.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring learning publicly as a skill
+   - Exploring the comedy of pretending to know more
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Learning publicly as a skill is always relevant  
+✅ **Timeless Topic:** The comedy of pretending to know more is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 4, July 2026 - Nano Creator Phase*
+*Wednesday, Week 4, July 2026 - Nano Creator Phase*
