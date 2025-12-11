@@ -1,18 +1,18 @@
-# Misfit Ravi - May 2027 Content Plan
+# Misfit Ravi - May 2027, Week 2 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Illusion of "Hustle Culture Success"
+### Productivity As a Personality Disorder
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the illusion of "hustle culture success".
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on productivity as a personality disorder.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the illusion of "hustle culture success"
+   - Exploring productivity as a personality disorder
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Illusion of "Hustle Culture Success" is always relevant  
+✅ **Timeless Topic:** Productivity As a Personality Disorder is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*May 2027 - Micro Creator Phase*
+*Week 2, May 2027 - Micro Creator Phase*
