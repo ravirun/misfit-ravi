@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2026, Week 1, Thursday Content Plan
+# Misfit Ravi - April 2026, Week 1, Friday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The pressure to be unique
+### Why identity feels temporary
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the pressure to be unique.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why identity feels temporary.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the pressure to be unique
+   - Exploring why identity feels temporary
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The pressure to be unique is always relevant  
+✅ **Timeless Topic:** Why identity feels temporary is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 1, April 2026 - Nano Creator Phase*
+*Friday, Week 1, April 2026 - Nano Creator Phase*
