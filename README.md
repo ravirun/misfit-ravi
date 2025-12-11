@@ -1,4 +1,4 @@
-# Misfit Ravi - September 2027, Week 2, Monday Content Plan
+# Misfit Ravi - September 2027, Week 2, Tuesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why humans share emotional content quickly
+### How misinformation spreads through emotion
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why humans share emotional content quickly.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how misinformation spreads through emotion.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why humans share emotional content quickly
+   - Exploring how misinformation spreads through emotion
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why humans share emotional content quickly is always relevant  
+✅ **Timeless Topic:** How misinformation spreads through emotion is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 2, September 2027 - Micro Creator Phase*
+*Tuesday, Week 2, September 2027 - Micro Creator Phase*
