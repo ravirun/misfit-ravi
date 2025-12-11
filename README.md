@@ -1,18 +1,24 @@
-# Misfit Ravi - April 2028, Week 4 Content Plan
+# Misfit Ravi - April 2028, Week 4, Monday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Weekly Content Topic
+## Daily Content Topic
 
-### Why Every Side Thinks They're the Main Character
+### Why political tribes adopt hero narratives
+
+---
+
+## Week Theme
+
+**Why Every Side Thinks They're the Main Character**
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why every side thinks they're the main character.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why political tribes adopt hero narratives.
 
 ---
 
@@ -44,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why every side thinks they're the main character
+   - Exploring why political tribes adopt hero narratives
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -53,16 +59,16 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
    - Finding humor in patterns
    - Making people think while laughing
 
-3. **Evergreen Elements**
-   - Content that ages well
-   - Timeless observations
-   - Rewatchable value
+3. **Daily Focus**
+   - Single, focused idea
+   - Deeper cultural analysis
+   - High-production value
 
 ---
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why Every Side Thinks They're the Main Character is always relevant  
+✅ **Timeless Topic:** Why political tribes adopt hero narratives is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Week 4, April 2028 - Macro Creator Phase*
+*Monday, Week 4, April 2028 - Macro Creator Phase*
