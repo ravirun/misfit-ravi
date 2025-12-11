@@ -1,4 +1,4 @@
-# Misfit Ravi - May 2027, Week 4, Thursday Content Plan
+# Misfit Ravi - May 2027, Week 4, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Motivational clichés decoded
+### Why hustle culture feels outdated
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on motivational clichés decoded.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why hustle culture feels outdated.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring motivational clichés decoded
+   - Exploring why hustle culture feels outdated
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Motivational clichés decoded is always relevant  
+✅ **Timeless Topic:** Why hustle culture feels outdated is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 4, May 2027 - Micro Creator Phase*
+*Friday, Week 4, May 2027 - Micro Creator Phase*
