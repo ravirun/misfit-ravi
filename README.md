@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2029, Week 1, Wednesday Content Plan
+# Misfit Ravi - March 2029, Week 1, Thursday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The illusion of objective reporting
+### How editing shapes perception
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on the illusion of objective reporting.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on how editing shapes perception.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the illusion of objective reporting
+   - Exploring how editing shapes perception
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The illusion of objective reporting is always relevant  
+✅ **Timeless Topic:** How editing shapes perception is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 1, March 2029 - Mega Creator Phase*
+*Thursday, Week 1, March 2029 - Mega Creator Phase*
