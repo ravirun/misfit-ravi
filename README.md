@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2028, Week 1, Wednesday Content Plan
+# Misfit Ravi - October 2028, Week 1, Thursday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How ads exploit emotional voids
+### Satire of unnecessary purchases
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how ads exploit emotional voids.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of unnecessary purchases.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how ads exploit emotional voids
+   - Exploring satire of unnecessary purchases
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How ads exploit emotional voids is always relevant  
+✅ **Timeless Topic:** Satire of unnecessary purchases is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 1, October 2028 - Macro Creator Phase*
+*Thursday, Week 1, October 2028 - Macro Creator Phase*
