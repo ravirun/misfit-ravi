@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2028, Week 4, Thursday Content Plan
+# Misfit Ravi - July 2028, Week 4, Friday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of randomness myths
+### Why consistency creates 'luck'
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of randomness myths.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why consistency creates 'luck'.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of randomness myths
+   - Exploring why consistency creates 'luck'
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of randomness myths is always relevant  
+✅ **Timeless Topic:** Why consistency creates 'luck' is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 4, July 2028 - Macro Creator Phase*
+*Friday, Week 4, July 2028 - Macro Creator Phase*
