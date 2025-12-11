@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2028, Week 4, Saturday Content Plan
+# Misfit Ravi - February 2028, Week 4, Sunday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why we expect others to be better than we are
+### Hypocrisy as a foundational human trait
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why we expect others to be better than we are.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on hypocrisy as a foundational human trait.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why we expect others to be better than we are
+   - Exploring hypocrisy as a foundational human trait
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why we expect others to be better than we are is always relevant  
+✅ **Timeless Topic:** Hypocrisy as a foundational human trait is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 4, February 2028 - Macro Creator Phase*
+*Sunday, Week 4, February 2028 - Macro Creator Phase*
