@@ -1,5 +1,25 @@
-# Misfit Ravi - June 2027, Week 4, Wednesday Content Plan
+# Misfit Ravi - June 24, 2027 (Thursday) Content Plan
 
+---
+
+## 📅 Calendar Information
+
+**Actual Date:** June 24, 2027 (2027-06-24)  
+**Day of Week:** Thursday  
+**Week:** Week 4 of June 2027  
+**Deadline:** June 24, 2027 at 11:59 PM (2027-06-24 23:59:59)
+
+---
+
+## ⏰ Branch Status
+
+**Status:** 🟢 ACTIVE  
+**Deadline:** June 24, 2027 at 11:59 PM  
+**Time Remaining:** 560 days, 4 hours, 48 minutes  
+
+> **Note:** This branch closes at 11:59 PM on June 24, 2027. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+
+---
 **Micro Creator (10k–100k followers)**
 
 ---
