@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2028, Week 1, Friday Content Plan
+# Misfit Ravi - August 2028, Week 1, Saturday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How training data shapes AI character
+### The comedy of flawed automation
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how training data shapes ai character.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the comedy of flawed automation.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how training data shapes ai character
+   - Exploring the comedy of flawed automation
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How training data shapes AI character is always relevant  
+✅ **Timeless Topic:** The comedy of flawed automation is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 1, August 2028 - Macro Creator Phase*
+*Saturday, Week 1, August 2028 - Macro Creator Phase*
