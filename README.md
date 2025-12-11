@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2028, Week 4, Wednesday Content Plan
+# Misfit Ravi - July 2028, Week 4, Thursday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How patterns shape viral success
+### Satire of randomness myths
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how patterns shape viral success.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of randomness myths.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how patterns shape viral success
+   - Exploring satire of randomness myths
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How patterns shape viral success is always relevant  
+✅ **Timeless Topic:** Satire of randomness myths is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 4, July 2028 - Macro Creator Phase*
+*Thursday, Week 4, July 2028 - Macro Creator Phase*
