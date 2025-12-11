@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2028, Week 4, Monday Content Plan
+# Misfit Ravi - January 2028, Week 4, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why modern stupidity just looks different
+### Are we smarter now or just louder?
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why modern stupidity just looks different.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on are we smarter now or just louder?.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why modern stupidity just looks different
+   - Exploring are we smarter now or just louder?
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why modern stupidity just looks different is always relevant  
+✅ **Timeless Topic:** Are we smarter now or just louder? is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 4, January 2028 - Macro Creator Phase*
+*Tuesday, Week 4, January 2028 - Macro Creator Phase*
