@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2028, Week 1, Monday Content Plan
+# Misfit Ravi - December 2028, Week 1, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### What worked better than expected
+### Why some ideas resonated deeply
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on what worked better than expected.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why some ideas resonated deeply.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring what worked better than expected
+   - Exploring why some ideas resonated deeply
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** What worked better than expected is always relevant  
+✅ **Timeless Topic:** Why some ideas resonated deeply is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 1, December 2028 - Macro Creator Phase*
+*Tuesday, Week 1, December 2028 - Macro Creator Phase*
