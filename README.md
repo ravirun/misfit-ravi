@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2026, Week 3, Wednesday Content Plan
+# Misfit Ravi - August 2026, Week 3, Thursday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The economics of outrage
+### Why angry content spreads faster
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the economics of outrage.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why angry content spreads faster.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the economics of outrage
+   - Exploring why angry content spreads faster
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The economics of outrage is always relevant  
+✅ **Timeless Topic:** Why angry content spreads faster is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 3, August 2026 - Nano Creator Phase*
+*Thursday, Week 3, August 2026 - Nano Creator Phase*
