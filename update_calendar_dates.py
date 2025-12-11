@@ -92,7 +92,7 @@ def update_readme_with_calendar(branch_name, date_info):
 **Deadline:** {date_info['deadline_formatted']}  
 **Time Remaining:** {get_time_remaining(date_info['deadline'])}  
 
-> **Note:** This branch closes at 11:59 PM on {date_info['date_formatted']}. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+> **Note:** This branch closes at 11:59 PM IST (Mumbai Time) on {date_info['date_formatted']}. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
 
 ---
 """
