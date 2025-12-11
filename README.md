@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2027, Week 4, Tuesday Content Plan
+# Misfit Ravi - March 2027, Week 4, Wednesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why relationships feel transactional
+### The 'what can you offer me' mindset
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why relationships feel transactional.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the 'what can you offer me' mindset.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why relationships feel transactional
+   - Exploring the 'what can you offer me' mindset
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why relationships feel transactional is always relevant  
+✅ **Timeless Topic:** The 'what can you offer me' mindset is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 4, March 2027 - Micro Creator Phase*
+*Wednesday, Week 4, March 2027 - Micro Creator Phase*
