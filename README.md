@@ -1,18 +1,18 @@
-# Misfit Ravi - February 2027 Content Plan
+# Misfit Ravi - February 2027, Week 3 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Economics of Clout: Why Attention Is the New Currency
+### Why People Chase Virality Like a Lottery Ticket
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the economics of clout: why attention is the new currency.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why people chase virality like a lottery ticket.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the economics of clout: why attention is the new currency
+   - Exploring why people chase virality like a lottery ticket
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Economics of Clout: Why Attention Is the New Currency is always relevant  
+✅ **Timeless Topic:** Why People Chase Virality Like a Lottery Ticket is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*February 2027 - Micro Creator Phase*
+*Week 3, February 2027 - Micro Creator Phase*
