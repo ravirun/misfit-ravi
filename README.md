@@ -1,18 +1,18 @@
-# Misfit Ravi - October 2028 Content Plan
+# Misfit Ravi - October 2028, Week 3 Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Global Comedy of Consumerism
+### How Advertising Manipulates Identity
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the global comedy of consumerism.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how advertising manipulates identity.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the global comedy of consumerism
+   - Exploring how advertising manipulates identity
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Global Comedy of Consumerism is always relevant  
+✅ **Timeless Topic:** How Advertising Manipulates Identity is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*October 2028 - Macro Creator Phase*
+*Week 3, October 2028 - Macro Creator Phase*
