@@ -1,4 +1,4 @@
-# Misfit Ravi - May 2029, Week 2, Saturday Content Plan
+# Misfit Ravi - May 2029, Week 2, Sunday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How charisma hijacks attention
+### Why charismatic leaders rise quickly
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on how charisma hijacks attention.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on why charismatic leaders rise quickly.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how charisma hijacks attention
+   - Exploring why charismatic leaders rise quickly
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How charisma hijacks attention is always relevant  
+✅ **Timeless Topic:** Why charismatic leaders rise quickly is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 2, May 2029 - Mega Creator Phase*
+*Sunday, Week 2, May 2029 - Mega Creator Phase*
