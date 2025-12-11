@@ -1,4 +1,4 @@
-# Misfit Ravi - September 2027, Week 3, Saturday Content Plan
+# Misfit Ravi - September 2027, Week 3, Sunday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of drama consumption habits
+### Why people crave chaotic content
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of drama consumption habits.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why people crave chaotic content.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of drama consumption habits
+   - Exploring why people crave chaotic content
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of drama consumption habits is always relevant  
+✅ **Timeless Topic:** Why people crave chaotic content is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 3, September 2027 - Micro Creator Phase*
+*Sunday, Week 3, September 2027 - Micro Creator Phase*
