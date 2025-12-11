@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2027, Week 1, Monday Content Plan
+# Misfit Ravi - July 2027, Week 1, Tuesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The glamorous illusion of influencer life
+### What people think creators do
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the glamorous illusion of influencer life.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on what people think creators do.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the glamorous illusion of influencer life
+   - Exploring what people think creators do
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The glamorous illusion of influencer life is always relevant  
+✅ **Timeless Topic:** What people think creators do is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 1, July 2027 - Micro Creator Phase*
+*Tuesday, Week 1, July 2027 - Micro Creator Phase*
