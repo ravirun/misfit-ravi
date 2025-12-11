@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2026, Week 1, Saturday Content Plan
+# Misfit Ravi - January 2026, Week 1, Sunday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why small rituals feel like survival tools
+### A day where you question every habit you have
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why small rituals feel like survival tools.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on a day where you question every habit you have.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why small rituals feel like survival tools
+   - Exploring a day where you question every habit you have
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why small rituals feel like survival tools is always relevant  
+✅ **Timeless Topic:** A day where you question every habit you have is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 1, January 2026 - Nano Creator Phase*
+*Sunday, Week 1, January 2026 - Nano Creator Phase*
