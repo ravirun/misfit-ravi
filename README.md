@@ -1,5 +1,25 @@
-# Misfit Ravi - June 2028, Week 4, Thursday Content Plan
+# Misfit Ravi - June 25, 2028 (Sunday) Content Plan
 
+---
+
+## 📅 Calendar Information
+
+**Actual Date:** June 25, 2028 (2028-06-25)  
+**Day of Week:** Sunday  
+**Week:** Week 4 of June 2028  
+**Deadline:** June 25, 2028 at 11:59 PM (2028-06-25 23:59:59)
+
+---
+
+## ⏰ Branch Status
+
+**Status:** 🟢 ACTIVE  
+**Deadline:** June 25, 2028 at 11:59 PM  
+**Time Remaining:** 927 days, 4 hours, 47 minutes  
+
+> **Note:** This branch closes at 11:59 PM on June 25, 2028. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+
+---
 **Macro Creator (100k–1M followers)**
 
 ---
