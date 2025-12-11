@@ -1,18 +1,18 @@
-# Misfit Ravi - April 2028 Content Plan
+# Misfit Ravi - April 2028, Week 3 Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### Satire of Political Theater (Timeless, Non-Partisan)
+### How Politicians Market Themselves Like Influencers
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of political theater (timeless, non-partisan).
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how politicians market themselves like influencers.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of political theater (timeless, non-partisan)
+   - Exploring how politicians market themselves like influencers
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of Political Theater is always relevant  
+✅ **Timeless Topic:** How Politicians Market Themselves Like Influencers is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*April 2028 - Macro Creator Phase*
+*Week 3, April 2028 - Macro Creator Phase*
