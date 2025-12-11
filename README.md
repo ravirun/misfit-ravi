@@ -1,18 +1,24 @@
-# Misfit Ravi - February 2028, Week 4 Content Plan
+# Misfit Ravi - February 2028, Week 4, Monday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Weekly Content Topic
+## Daily Content Topic
 
-### The Comedy of Saying One Thing and Doing Another
+### Why humans contradict themselves constantly
+
+---
+
+## Week Theme
+
+**The Comedy of Saying One Thing and Doing Another**
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the comedy of saying one thing and doing another.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why humans contradict themselves constantly.
 
 ---
 
@@ -44,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the comedy of saying one thing and doing another
+   - Exploring why humans contradict themselves constantly
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -53,16 +59,16 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
    - Finding humor in patterns
    - Making people think while laughing
 
-3. **Evergreen Elements**
-   - Content that ages well
-   - Timeless observations
-   - Rewatchable value
+3. **Daily Focus**
+   - Single, focused idea
+   - Deeper cultural analysis
+   - High-production value
 
 ---
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Comedy of Saying One Thing and Doing Another is always relevant  
+✅ **Timeless Topic:** Why humans contradict themselves constantly is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Week 4, February 2028 - Macro Creator Phase*
+*Monday, Week 4, February 2028 - Macro Creator Phase*
