@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2027, Week 1, Wednesday Content Plan
+# Misfit Ravi - June 2027, Week 1, Thursday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Translating corporate speak
+### Buzzwords that mean nothing
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on translating corporate speak.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on buzzwords that mean nothing.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring translating corporate speak
+   - Exploring buzzwords that mean nothing
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Translating corporate speak is always relevant  
+✅ **Timeless Topic:** Buzzwords that mean nothing is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 1, June 2027 - Micro Creator Phase*
+*Thursday, Week 1, June 2027 - Micro Creator Phase*
