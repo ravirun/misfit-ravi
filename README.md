@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2026, Week 4, Monday Content Plan
+# Misfit Ravi - August 2026, Week 4, Tuesday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why arguing online feels 'important'
+### The ego battle behind every comment war
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why arguing online feels 'important'.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the ego battle behind every comment war.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why arguing online feels 'important'
+   - Exploring the ego battle behind every comment war
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why arguing online feels 'important' is always relevant  
+✅ **Timeless Topic:** The ego battle behind every comment war is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 4, August 2026 - Nano Creator Phase*
+*Tuesday, Week 4, August 2026 - Nano Creator Phase*
