@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2029, Week 3, Saturday Content Plan
+# Misfit Ravi - July 2029, Week 3, Sunday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How management teams profit from fame cycles
+### The hidden economy behind public figures
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on how management teams profit from fame cycles.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on the hidden economy behind public figures.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how management teams profit from fame cycles
+   - Exploring the hidden economy behind public figures
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How management teams profit from fame cycles is always relevant  
+✅ **Timeless Topic:** The hidden economy behind public figures is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 3, July 2029 - Mega Creator Phase*
+*Sunday, Week 3, July 2029 - Mega Creator Phase*
