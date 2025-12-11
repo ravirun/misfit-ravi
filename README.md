@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2027, Week 3, Wednesday Content Plan
+# Misfit Ravi - June 2027, Week 3, Thursday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why companies reward busyness over results
+### How to fake focus like a pro
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why companies reward busyness over results.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how to fake focus like a pro.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why companies reward busyness over results
+   - Exploring how to fake focus like a pro
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why companies reward busyness over results is always relevant  
+✅ **Timeless Topic:** How to fake focus like a pro is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 3, June 2027 - Micro Creator Phase*
+*Thursday, Week 3, June 2027 - Micro Creator Phase*
