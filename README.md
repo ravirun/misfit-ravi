@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2028, Week 3, Monday Content Plan
+# Misfit Ravi - March 2028, Week 3, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why notifications hijack your focus
+### The addiction science behind alerts
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why notifications hijack your focus.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the addiction science behind alerts.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why notifications hijack your focus
+   - Exploring the addiction science behind alerts
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why notifications hijack your focus is always relevant  
+✅ **Timeless Topic:** The addiction science behind alerts is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 3, March 2028 - Macro Creator Phase*
+*Tuesday, Week 3, March 2028 - Macro Creator Phase*
