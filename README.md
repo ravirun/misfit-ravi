@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2029, Week 2, Tuesday Content Plan
+# Misfit Ravi - March 2029, Week 2, Wednesday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How emotional triggers shape public opinion
+### The mechanics of agenda-setting
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on how emotional triggers shape public opinion.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on the mechanics of agenda-setting.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how emotional triggers shape public opinion
+   - Exploring the mechanics of agenda-setting
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How emotional triggers shape public opinion is always relevant  
+✅ **Timeless Topic:** The mechanics of agenda-setting is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 2, March 2029 - Mega Creator Phase*
+*Wednesday, Week 2, March 2029 - Mega Creator Phase*
