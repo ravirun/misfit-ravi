@@ -1,4 +1,8 @@
-# Misfit Ravi - January 2027, Week 3, Monday Content Plan
+# Misfit Ravi - January 18, 2027 (Monday) Content Plan
+**Actual Date:** January 18, 2027 (2027-01-18)  
+**Day of Week:** Monday  
+**Week Number:** 3  
+**Month:** January 2027
 
 **Micro Creator (10k–100k followers)**
 
@@ -76,4 +80,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 3, January 2027 - Micro Creator Phase*
+*January 18, 2027 (Monday) - Micro Creator Phase*
