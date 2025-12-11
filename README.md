@@ -1,4 +1,8 @@
-# Misfit Ravi - May 2026, Week 2, Sunday Content Plan
+# Misfit Ravi - May 17, 2026 (Sunday) Content Plan
+**Actual Date:** May 17, 2026 (2026-05-17)  
+**Day of Week:** Sunday  
+**Week Number:** 2  
+**Month:** May 2026
 
 **Nano Creator (1k–10k followers)**
 
@@ -76,4 +80,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Sunday, Week 2, May 2026 - Nano Creator Phase*
+*May 17, 2026 (Sunday) - Nano Creator Phase*
