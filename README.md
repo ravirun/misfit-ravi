@@ -1,18 +1,18 @@
-# Misfit Ravi - February 2026 Content Plan
+# Misfit Ravi - February 2026, Week 4 Content Plan
 
 **Nano Creator (1k–10k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Satire of Productivity Culture
+### Why Rest Feels Illegal in 2026
 
 ---
 
 ## Topic Overview
 
-A satirical take on modern productivity culture, hustle mentality, and the absurd ways we try to optimize every second of our lives.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why rest feels illegal in 2026.
 
 ---
 
@@ -44,7 +44,7 @@ A satirical take on modern productivity culture, hustle mentality, and the absur
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the satire of productivity culture
+   - Exploring why rest feels illegal in 2026
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ A satirical take on modern productivity culture, hustle mentality, and the absur
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Satire of Productivity Culture is always relevant  
+✅ **Timeless Topic:** Why Rest Feels Illegal in 2026 is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ A satirical take on modern productivity culture, hustle mentality, and the absur
 ---
 
 *Building something timeless, one video at a time.*  
-*February 2026 - Nano Creator Phase*
+*Week 4, February 2026 - Nano Creator Phase*
