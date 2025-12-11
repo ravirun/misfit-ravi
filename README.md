@@ -1,18 +1,18 @@
-# Misfit Ravi - October 2026 Content Plan
+# Misfit Ravi - October 2026, Week 3 Content Plan
 
 **Nano Creator (1k–10k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### Why Our Attention Span Is Now Shorter Than a Goldfish
+### The Scrolling Addiction We Pretend Not to Have
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why our attention span is now shorter than a goldfish.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the scrolling addiction we pretend not to have.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why our attention span is now shorter than a goldfish
+   - Exploring the scrolling addiction we pretend not to have
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why Our Attention Span Is Now Shorter Than a Goldfish is always relevant  
+✅ **Timeless Topic:** The Scrolling Addiction We Pretend Not to Have is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*October 2026 - Nano Creator Phase*
+*Week 3, October 2026 - Nano Creator Phase*
