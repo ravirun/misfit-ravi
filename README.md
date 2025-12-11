@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2027, Week 4, Thursday Content Plan
+# Misfit Ravi - April 2027, Week 4, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The comedy of confidently wrong people
+### Why controversy attracts viewers
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the comedy of confidently wrong people.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why controversy attracts viewers.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the comedy of confidently wrong people
+   - Exploring why controversy attracts viewers
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The comedy of confidently wrong people is always relevant  
+✅ **Timeless Topic:** Why controversy attracts viewers is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 4, April 2027 - Micro Creator Phase*
+*Friday, Week 4, April 2027 - Micro Creator Phase*
