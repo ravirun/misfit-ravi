@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2028, Week 4, Saturday Content Plan
+# Misfit Ravi - December 2028, Week 4, Sunday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How creativity reshaped my identity
+### Final reflections on year 3
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how creativity reshaped my identity.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on final reflections on year 3.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how creativity reshaped my identity
+   - Exploring final reflections on year 3
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How creativity reshaped my identity is always relevant  
+✅ **Timeless Topic:** Final reflections on year 3 is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 4, December 2028 - Macro Creator Phase*
+*Sunday, Week 4, December 2028 - Macro Creator Phase*
