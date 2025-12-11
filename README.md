@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2027, Week 2, Saturday Content Plan
+# Misfit Ravi - December 2027, Week 2, Sunday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The psychology of rapid growth
+### What 10k taught me vs what 100k taught me
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the psychology of rapid growth.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on what 10k taught me vs what 100k taught me.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the psychology of rapid growth
+   - Exploring what 10k taught me vs what 100k taught me
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The psychology of rapid growth is always relevant  
+✅ **Timeless Topic:** What 10k taught me vs what 100k taught me is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 2, December 2027 - Micro Creator Phase*
+*Sunday, Week 2, December 2027 - Micro Creator Phase*
