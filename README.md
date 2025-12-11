@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2029, Week 2, Saturday Content Plan
+# Misfit Ravi - January 2029, Week 2, Sunday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why leadership relies on confidence theater
+### How the illusion of control keeps society functioning
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on why leadership relies on confidence theater.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on how the illusion of control keeps society functioning.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why leadership relies on confidence theater
+   - Exploring how the illusion of control keeps society functioning
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why leadership relies on confidence theater is always relevant  
+✅ **Timeless Topic:** How the illusion of control keeps society functioning is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 2, January 2029 - Mega Creator Phase*
+*Sunday, Week 2, January 2029 - Mega Creator Phase*
