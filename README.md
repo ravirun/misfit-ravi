@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2026, Week 4, Friday Content Plan
+# Misfit Ravi - July 2026, Week 4, Saturday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why vulnerability builds trust
+### My satirical take on being a fake expert
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why vulnerability builds trust.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on my satirical take on being a fake expert.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why vulnerability builds trust
+   - Exploring my satirical take on being a fake expert
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why vulnerability builds trust is always relevant  
+✅ **Timeless Topic:** My satirical take on being a fake expert is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 4, July 2026 - Nano Creator Phase*
+*Saturday, Week 4, July 2026 - Nano Creator Phase*
