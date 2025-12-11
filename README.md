@@ -1,9 +1,25 @@
-# Misfit Ravi - January 20, 2027 (Wednesday) Content Plan
-**Actual Date:** January 20, 2027 (2027-01-20)  
-**Day of Week:** Wednesday  
-**Week Number:** 3  
-**Month:** January 2027
+# Misfit Ravi - January 17, 2027 (Sunday) Content Plan
 
+---
+
+## 📅 Calendar Information
+
+**Actual Date:** January 17, 2027 (2027-01-17)  
+**Day of Week:** Sunday  
+**Week:** Week 3 of January 2027  
+**Deadline:** January 17, 2027 at 11:59 PM (2027-01-17 23:59:59)
+
+---
+
+## ⏰ Branch Status
+
+**Status:** 🟢 ACTIVE  
+**Deadline:** January 17, 2027 at 11:59 PM  
+**Time Remaining:** 402 days, 4 hours, 48 minutes  
+
+> **Note:** This branch closes at 11:59 PM on January 17, 2027. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+
+---
 **Micro Creator (10k–100k followers)**
 
 ---
