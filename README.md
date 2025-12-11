@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2029, Week 4, Monday Content Plan
+# Misfit Ravi - January 2029, Week 4, Tuesday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why humans fight over meaningless authority
+### The humor in workplace micro-power battles
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on why humans fight over meaningless authority.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on the humor in workplace micro-power battles.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why humans fight over meaningless authority
+   - Exploring the humor in workplace micro-power battles
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why humans fight over meaningless authority is always relevant  
+✅ **Timeless Topic:** The humor in workplace micro-power battles is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 4, January 2029 - Mega Creator Phase*
+*Tuesday, Week 4, January 2029 - Mega Creator Phase*
