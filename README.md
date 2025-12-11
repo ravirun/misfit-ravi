@@ -1,18 +1,18 @@
-# Misfit Ravi - June 2028 Content Plan
+# Misfit Ravi - June 2028, Week 3 Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Future of Humanity (If We Keep Doing Dumb Things)
+### Why Our Worst Decisions Come From Good Intentions
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the future of humanity (if we keep doing dumb things).
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why our worst decisions come from good intentions.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the future of humanity (if we keep doing dumb things)
+   - Exploring why our worst decisions come from good intentions
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Future of Humanity is always relevant  
+✅ **Timeless Topic:** Why Our Worst Decisions Come From Good Intentions is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*June 2028 - Macro Creator Phase*
+*Week 3, June 2028 - Macro Creator Phase*
