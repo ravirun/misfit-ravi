@@ -1,18 +1,18 @@
-# Misfit Ravi - August 2028 Content Plan
+# Misfit Ravi - August 2028, Week 4 Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### Why AI Might Replace Humans (But Not Our Mistakes)
+### AI in 2050: Smarter Tools, Same Dumb Decisions
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why ai might replace humans (but not our mistakes).
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on ai in 2050: smarter tools, same dumb decisions.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why ai might replace humans (but not our mistakes)
+   - Exploring ai in 2050: smarter tools, same dumb decisions
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why AI Might Replace Humans is always relevant  
+✅ **Timeless Topic:** AI in 2050: Smarter Tools, Same Dumb Decisions is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*August 2028 - Macro Creator Phase*
+*Week 4, August 2028 - Macro Creator Phase*
