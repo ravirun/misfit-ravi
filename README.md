@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2028, Week 2, Friday Content Plan
+# Misfit Ravi - June 2028, Week 2, Saturday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How tech accelerates chaos
+### The double-edged sword of progress
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how tech accelerates chaos.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the double-edged sword of progress.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how tech accelerates chaos
+   - Exploring the double-edged sword of progress
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How tech accelerates chaos is always relevant  
+✅ **Timeless Topic:** The double-edged sword of progress is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 2, June 2028 - Macro Creator Phase*
+*Saturday, Week 2, June 2028 - Macro Creator Phase*
