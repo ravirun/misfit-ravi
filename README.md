@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2028, Week 3, Thursday Content Plan
+# Misfit Ravi - January 2028, Week 3, Friday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why innovators are part genius, part chaos
+### The comedic origins of modern technology
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why innovators are part genius, part chaos.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the comedic origins of modern technology.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why innovators are part genius, part chaos
+   - Exploring the comedic origins of modern technology
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why innovators are part genius, part chaos is always relevant  
+✅ **Timeless Topic:** The comedic origins of modern technology is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 3, January 2028 - Macro Creator Phase*
+*Friday, Week 3, January 2028 - Macro Creator Phase*
