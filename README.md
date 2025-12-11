@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2027, Week 3, Wednesday Content Plan
+# Misfit Ravi - October 2027, Week 3, Thursday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why doing nothing sparks anxiety
+### How society moralizes productivity
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why doing nothing sparks anxiety.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how society moralizes productivity.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why doing nothing sparks anxiety
+   - Exploring how society moralizes productivity
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why doing nothing sparks anxiety is always relevant  
+✅ **Timeless Topic:** How society moralizes productivity is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 3, October 2027 - Micro Creator Phase*
+*Thursday, Week 3, October 2027 - Micro Creator Phase*
