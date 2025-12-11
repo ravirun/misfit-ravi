@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2027, Week 4, Friday Content Plan
+# Misfit Ravi - August 2027, Week 4, Saturday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The illusion of control over reach
+### Ethics of algorithmic influence
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the illusion of control over reach.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on ethics of algorithmic influence.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the illusion of control over reach
+   - Exploring ethics of algorithmic influence
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The illusion of control over reach is always relevant  
+✅ **Timeless Topic:** Ethics of algorithmic influence is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 4, August 2027 - Micro Creator Phase*
+*Saturday, Week 4, August 2027 - Micro Creator Phase*
