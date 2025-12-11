@@ -1,4 +1,4 @@
-# Misfit Ravi - September 2027, Week 2, Wednesday Content Plan
+# Misfit Ravi - September 2027, Week 2, Thursday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The virality of outrage
+### Truth vs engagement battle
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the virality of outrage.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on truth vs engagement battle.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the virality of outrage
+   - Exploring truth vs engagement battle
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The virality of outrage is always relevant  
+✅ **Timeless Topic:** Truth vs engagement battle is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 2, September 2027 - Micro Creator Phase*
+*Thursday, Week 2, September 2027 - Micro Creator Phase*
