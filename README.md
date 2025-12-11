@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2027, Week 2, Tuesday Content Plan
+# Misfit Ravi - April 2027, Week 2, Wednesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why fake experts thrive
+### How speaking loudly beats being right
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why fake experts thrive.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how speaking loudly beats being right.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why fake experts thrive
+   - Exploring how speaking loudly beats being right
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why fake experts thrive is always relevant  
+✅ **Timeless Topic:** How speaking loudly beats being right is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 2, April 2027 - Micro Creator Phase*
+*Wednesday, Week 2, April 2027 - Micro Creator Phase*
