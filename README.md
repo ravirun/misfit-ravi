@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2027, Week 2, Friday Content Plan
+# Misfit Ravi - June 2027, Week 2, Saturday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of pointless gatherings
+### When meetings replace actual work
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of pointless gatherings.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on when meetings replace actual work.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of pointless gatherings
+   - Exploring when meetings replace actual work
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of pointless gatherings is always relevant  
+✅ **Timeless Topic:** When meetings replace actual work is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 2, June 2027 - Micro Creator Phase*
+*Saturday, Week 2, June 2027 - Micro Creator Phase*
