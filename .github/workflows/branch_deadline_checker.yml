@@ -1,0 +1,38 @@
+name: Branch Deadline Checker
+
+on:
+  schedule:
+    # Run every hour to check deadlines
+    - cron: '0 * * * *'
+  workflow_dispatch:  # Allow manual trigger
+
+jobs:
+  check-deadlines:
+    runs-on: ubuntu-latest
+    
+    steps:
+    - name: Checkout repository
+      uses: actions/checkout@v3
+      with:
+        fetch-depth: 0  # Fetch all history
+    
+    - name: Set up Python
+      uses: actions/setup-python@v4
+      with:
+        python-version: '3.11'
+    
+    - name: Install dependencies
+      run: |
+        pip install pygithub
+    
+    - name: Check branch deadlines
+      env:
+        GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+      run: |
+        python3 .github/scripts/check_branch_deadlines.py
+    
+    - name: Create summary
+      run: |
+        echo "## Branch Deadline Check Summary" >> $GITHUB_STEP_SUMMARY
+        echo "Checked all day branches for deadline status" >> $GITHUB_STEP_SUMMARY
+        echo "Branches past deadline are marked as closed but remain visible" >> $GITHUB_STEP_SUMMARY
