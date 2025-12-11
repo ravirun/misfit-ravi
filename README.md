@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2028, Week 2, Wednesday Content Plan
+# Misfit Ravi - December 2028, Week 2, Thursday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why the internet surprised me
+### Satire of my wrong predictions
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why the internet surprised me.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of my wrong predictions.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why the internet surprised me
+   - Exploring satire of my wrong predictions
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why the internet surprised me is always relevant  
+✅ **Timeless Topic:** Satire of my wrong predictions is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 2, December 2028 - Macro Creator Phase*
+*Thursday, Week 2, December 2028 - Macro Creator Phase*
