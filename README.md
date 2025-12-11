@@ -1,4 +1,4 @@
-# Misfit Ravi - September 2027, Week 3, Thursday Content Plan
+# Misfit Ravi - September 2027, Week 3, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The addictive loop of outrage content
+### The tribal nature of online conflicts
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the addictive loop of outrage content.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the tribal nature of online conflicts.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the addictive loop of outrage content
+   - Exploring the tribal nature of online conflicts
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The addictive loop of outrage content is always relevant  
+✅ **Timeless Topic:** The tribal nature of online conflicts is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 3, September 2027 - Micro Creator Phase*
+*Friday, Week 3, September 2027 - Micro Creator Phase*
