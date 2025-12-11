@@ -1,4 +1,4 @@
-# Misfit Ravi - May 2028, Week 2, Monday Content Plan
+# Misfit Ravi - May 2028, Week 2, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why execution is ignored
+### The obsession with visionary thinking
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why execution is ignored.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the obsession with visionary thinking.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why execution is ignored
+   - Exploring the obsession with visionary thinking
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why execution is ignored is always relevant  
+✅ **Timeless Topic:** The obsession with visionary thinking is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 2, May 2028 - Macro Creator Phase*
+*Tuesday, Week 2, May 2028 - Macro Creator Phase*
