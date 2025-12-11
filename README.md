@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2028, Week 3, Friday Content Plan
+# Misfit Ravi - November 2028, Week 3, Saturday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The bullet-point version of the 2020s
+### Why future students will laugh at us
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the bullet-point version of the 2020s.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why future students will laugh at us.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the bullet-point version of the 2020s
+   - Exploring why future students will laugh at us
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The bullet-point version of the 2020s is always relevant  
+✅ **Timeless Topic:** Why future students will laugh at us is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 3, November 2028 - Macro Creator Phase*
+*Saturday, Week 3, November 2028 - Macro Creator Phase*
