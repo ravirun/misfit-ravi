@@ -1,9 +1,25 @@
 # Misfit Ravi - June 04, 2026 (Thursday) Content Plan
+
+---
+
+## 📅 Calendar Information
+
 **Actual Date:** June 04, 2026 (2026-06-04)  
 **Day of Week:** Thursday  
-**Week Number:** 1  
-**Month:** June 2026
+**Week:** Week 1 of June 2026  
+**Deadline:** June 04, 2026 at 11:59 PM (2026-06-04 23:59:59)
 
+---
+
+## ⏰ Branch Status
+
+**Status:** 🟢 ACTIVE  
+**Deadline:** June 04, 2026 at 11:59 PM  
+**Time Remaining:** 175 days, 4 hours, 48 minutes  
+
+> **Note:** This branch closes at 11:59 PM on June 04, 2026. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+
+---
 **Nano Creator (1k–10k followers)**
 
 ---
