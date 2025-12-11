@@ -1,4 +1,4 @@
-# Misfit Ravi - September 2028, Week 4, Wednesday Content Plan
+# Misfit Ravi - September 2028, Week 4, Thursday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How micro-influencers act like aristocrats
+### How fame forms modern social castes
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how micro-influencers act like aristocrats.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how fame forms modern social castes.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how micro-influencers act like aristocrats
+   - Exploring how fame forms modern social castes
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How micro-influencers act like aristocrats is always relevant  
+✅ **Timeless Topic:** How fame forms modern social castes is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 4, September 2028 - Macro Creator Phase*
+*Thursday, Week 4, September 2028 - Macro Creator Phase*
