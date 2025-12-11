@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2028, Week 4, Wednesday Content Plan
+# Misfit Ravi - December 2028, Week 4, Thursday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### What I wished I knew earlier
+### Why passion alone isn't enough
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on what i wished i knew earlier.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why passion alone isn't enough.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring what i wished i knew earlier
+   - Exploring why passion alone isn't enough
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** What I wished I knew earlier is always relevant  
+✅ **Timeless Topic:** Why passion alone isn't enough is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 4, December 2028 - Macro Creator Phase*
+*Thursday, Week 4, December 2028 - Macro Creator Phase*
