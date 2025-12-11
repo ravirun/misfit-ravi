@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2026, Week 3, Tuesday Content Plan
+# Misfit Ravi - October 2026, Week 3, Wednesday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why we scroll unconsciously
+### The feedback loop of dopamine hits
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why we scroll unconsciously.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the feedback loop of dopamine hits.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why we scroll unconsciously
+   - Exploring the feedback loop of dopamine hits
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why we scroll unconsciously is always relevant  
+✅ **Timeless Topic:** The feedback loop of dopamine hits is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 3, October 2026 - Nano Creator Phase*
+*Wednesday, Week 3, October 2026 - Nano Creator Phase*
