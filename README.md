@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2029, Week 2, Wednesday Content Plan
+# Misfit Ravi - January 2029, Week 2, Thursday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The difference between real power and perceived power
+### Why humans love performative authority
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on the difference between real power and perceived power.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on why humans love performative authority.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the difference between real power and perceived power
+   - Exploring why humans love performative authority
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The difference between real power and perceived power is always relevant  
+✅ **Timeless Topic:** Why humans love performative authority is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 2, January 2029 - Mega Creator Phase*
+*Thursday, Week 2, January 2029 - Mega Creator Phase*
