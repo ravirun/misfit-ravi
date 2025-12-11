@@ -1,18 +1,24 @@
-# Misfit Ravi - January 2027, Week 2 Content Plan
+# Misfit Ravi - January 2027, Week 2, Monday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Weekly Content Topic
+## Daily Content Topic
 
-### Why People Perform Versions of Themselves Online
+### The psychology behind online performance
+
+---
+
+## Week Theme
+
+**Why People Perform Versions of Themselves Online**
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why people perform versions of themselves online.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the psychology behind online performance.
 
 ---
 
@@ -44,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why people perform versions of themselves online
+   - Exploring the psychology behind online performance
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -53,16 +59,16 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
    - Finding humor in patterns
    - Making people think while laughing
 
-3. **Evergreen Elements**
-   - Content that ages well
-   - Timeless observations
-   - Rewatchable value
+3. **Daily Focus**
+   - Single, focused idea
+   - Deeper cultural commentary
+   - Higher engagement potential
 
 ---
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why People Perform Versions of Themselves Online is always relevant  
+✅ **Timeless Topic:** The psychology behind online performance is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Week 2, January 2027 - Micro Creator Phase*
+*Monday, Week 2, January 2027 - Micro Creator Phase*
