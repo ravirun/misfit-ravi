@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2027, Week 4, Thursday Content Plan
+# Misfit Ravi - March 2027, Week 4, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How people treat partners like products
+### Customer-service tone in dating texts
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how people treat partners like products.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on customer-service tone in dating texts.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how people treat partners like products
+   - Exploring customer-service tone in dating texts
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How people treat partners like products is always relevant  
+✅ **Timeless Topic:** Customer-service tone in dating texts is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 4, March 2027 - Micro Creator Phase*
+*Friday, Week 4, March 2027 - Micro Creator Phase*
