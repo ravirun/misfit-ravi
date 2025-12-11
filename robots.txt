@@ -1,0 +1,11 @@
+# robots.txt for Misfit Ravi GitHub Pages
+# Allow all search engines to crawl the site
+
+User-agent: *
+Allow: /
+
+# Sitemap location
+Sitemap: https://ravirun.github.io/misfit-ravi/sitemap.xml
+
+# Disallow specific paths if needed (currently none)
+# Disallow: /private/

@@ -1,13 +1,13 @@
 # Misfit Ravi
 
 **Real Name:** Ravi Sharma  
-**Content Entrepreneur**
+**Serial Entrepreneur**
 
 ---
 
 ## About
 
-Satirical infotainment creator turning the chaos of modern life into sharp, witty commentary that makes people think, laugh, and feel understood.
+**Misfit Ravi** (Ravi Sharma) is a **Serial Entrepreneur** and **Satirical Infotainment Creator** turning the chaos of modern life into sharp, witty commentary that makes people think, laugh, and feel understood. As a content creator specializing in **satirical infotainment**, I combine entertainment, social commentary, cultural analysis, humor, and insightful observations to create timeless, rewatchable content that resonates with audiences seeking smart, fun, and truth-revealing media.
 
 ---
 
@@ -158,6 +158,25 @@ It is both timeless and ownable — perfect for long-term royalties.
 - Evergreen content
 - Satirical commentary
 - Infotainment-friendly topics
+
+---
+
+## Connect & Follow
+
+### Social Media
+- **YouTube:** [@misfit-ravi](https://www.youtube.com/@misfit-ravi/)
+- **Instagram:** [@misfit.ravi](https://www.instagram.com/misfit.ravi/)
+- **X (Twitter):** [@ravirun1](https://x.com/ravirun1)
+- **LinkedIn:** [Ravi Sharma](https://www.linkedin.com/in/rs591090/)
+- **GitHub:** [@ravirun](https://github.com/ravirun)
+- **Pinterest:** [rs591090](https://in.pinterest.com/rs591090/) | [Pin Link](https://pin.it/34cLH9tkH)
+
+### Portfolio & Agency
+- **Portfolio:** [Rocky On The Rise](https://rockyontherise.netlify.app/)
+- **Agency:** [THE 3 STUDIO](https://the3studio.vercel.app/)
+
+### Website
+- **Landing Page:** [View HTML Site](index.html)
 
 ---
 
