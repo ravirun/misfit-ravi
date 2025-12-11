@@ -1,4 +1,4 @@
-# Misfit Ravi - September 2028, Week 1, Thursday Content Plan
+# Misfit Ravi - September 2028, Week 1, Friday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of online success metrics
+### Why numbers determine respect
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of online success metrics.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why numbers determine respect.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of online success metrics
+   - Exploring why numbers determine respect
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of online success metrics is always relevant  
+✅ **Timeless Topic:** Why numbers determine respect is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 1, September 2028 - Macro Creator Phase*
+*Friday, Week 1, September 2028 - Macro Creator Phase*
