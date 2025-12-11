@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2026, Week 2, Saturday Content Plan
+# Misfit Ravi - November 2026, Week 2, Sunday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The satire of polite dishonesty
+### Why humans follow illogical conventions
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the satire of polite dishonesty.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why humans follow illogical conventions.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the satire of polite dishonesty
+   - Exploring why humans follow illogical conventions
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The satire of polite dishonesty is always relevant  
+✅ **Timeless Topic:** Why humans follow illogical conventions is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 2, November 2026 - Nano Creator Phase*
+*Sunday, Week 2, November 2026 - Nano Creator Phase*
