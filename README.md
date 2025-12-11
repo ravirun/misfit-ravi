@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2026, Week 2, Saturday Content Plan
+# Misfit Ravi - July 2026, Week 2, Sunday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Certainty as entertainment
+### Satire of know-it-all culture
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on certainty as entertainment.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on satire of know-it-all culture.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring certainty as entertainment
+   - Exploring satire of know-it-all culture
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Certainty as entertainment is always relevant  
+✅ **Timeless Topic:** Satire of know-it-all culture is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 2, July 2026 - Nano Creator Phase*
+*Sunday, Week 2, July 2026 - Nano Creator Phase*
