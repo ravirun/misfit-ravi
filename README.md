@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2028, Week 1, Wednesday Content Plan
+# Misfit Ravi - January 2028, Week 1, Thursday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### History's dumbest inventions with real consequences
+### Why every generation thinks the next is doomed
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on history's dumbest inventions with real consequences.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why every generation thinks the next is doomed.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring history's dumbest inventions with real consequences
+   - Exploring why every generation thinks the next is doomed
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** History's dumbest inventions with real consequences is always relevant  
+✅ **Timeless Topic:** Why every generation thinks the next is doomed is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 1, January 2028 - Macro Creator Phase*
+*Thursday, Week 1, January 2028 - Macro Creator Phase*
