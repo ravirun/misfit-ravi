@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2026, Week 4, Thursday Content Plan
+# Misfit Ravi - January 2026, Week 4, Friday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How conformity creates confusion
+### Everyday hypocrisy we ignore
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how conformity creates confusion.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on everyday hypocrisy we ignore.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how conformity creates confusion
+   - Exploring everyday hypocrisy we ignore
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How conformity creates confusion is always relevant  
+✅ **Timeless Topic:** Everyday hypocrisy we ignore is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 4, January 2026 - Nano Creator Phase*
+*Friday, Week 4, January 2026 - Nano Creator Phase*
