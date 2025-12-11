@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2027, Week 3, Friday Content Plan
+# Misfit Ravi - February 2027, Week 3, Saturday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The psychology of chasing views
+### Why virality rewires the brain
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the psychology of chasing views.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why virality rewires the brain.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the psychology of chasing views
+   - Exploring why virality rewires the brain
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The psychology of chasing views is always relevant  
+✅ **Timeless Topic:** Why virality rewires the brain is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 3, February 2027 - Micro Creator Phase*
+*Saturday, Week 3, February 2027 - Micro Creator Phase*
