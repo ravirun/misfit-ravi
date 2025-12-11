@@ -1,18 +1,24 @@
-# Misfit Ravi - August 2028, Week 1 Content Plan
+# Misfit Ravi - August 2028, Week 1, Monday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Weekly Content Topic
+## Daily Content Topic
 
-### The Human Biases AI Will Inherit
+### Why AI copies human flaws
+
+---
+
+## Week Theme
+
+**The Human Biases AI Will Inherit**
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the human biases ai will inherit.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why ai copies human flaws.
 
 ---
 
@@ -44,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the human biases ai will inherit
+   - Exploring why ai copies human flaws
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -53,16 +59,16 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
    - Finding humor in patterns
    - Making people think while laughing
 
-3. **Evergreen Elements**
-   - Content that ages well
-   - Timeless observations
-   - Rewatchable value
+3. **Daily Focus**
+   - Single, focused idea
+   - Deeper cultural analysis
+   - High-production value
 
 ---
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Human Biases AI Will Inherit is always relevant  
+✅ **Timeless Topic:** Why AI copies human flaws is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Week 1, August 2028 - Macro Creator Phase*
+*Monday, Week 1, August 2028 - Macro Creator Phase*
