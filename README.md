@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2027, Week 3, Thursday Content Plan
+# Misfit Ravi - February 2027, Week 3, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How creators gamble with content
+### The psychology of chasing views
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how creators gamble with content.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the psychology of chasing views.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how creators gamble with content
+   - Exploring the psychology of chasing views
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How creators gamble with content is always relevant  
+✅ **Timeless Topic:** The psychology of chasing views is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 3, February 2027 - Micro Creator Phase*
+*Friday, Week 3, February 2027 - Micro Creator Phase*
