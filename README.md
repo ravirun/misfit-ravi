@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2028, Week 3, Tuesday Content Plan
+# Misfit Ravi - April 2028, Week 3, Wednesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why campaigns mirror influencer strategies
+### How public personas are engineered
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why campaigns mirror influencer strategies.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how public personas are engineered.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why campaigns mirror influencer strategies
+   - Exploring how public personas are engineered
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why campaigns mirror influencer strategies is always relevant  
+✅ **Timeless Topic:** How public personas are engineered is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 3, April 2028 - Macro Creator Phase*
+*Wednesday, Week 3, April 2028 - Macro Creator Phase*
