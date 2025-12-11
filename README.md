@@ -1,18 +1,18 @@
-# Misfit Ravi - January 2027 Content Plan
+# Misfit Ravi - January 2027, Week 1 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### How the Internet Manufactures Identity
+### The Algorithmic Identity Crisis: Who Are You Without the Feed?
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how the internet manufactures identity.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the algorithmic identity crisis: who are you without the feed?.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how the internet manufactures identity
+   - Exploring the algorithmic identity crisis: who are you without the feed?
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How the Internet Manufactures Identity is always relevant  
+✅ **Timeless Topic:** The Algorithmic Identity Crisis: Who Are You Without the Feed? is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*January 2027 - Micro Creator Phase*
+*Week 1, January 2027 - Micro Creator Phase*
