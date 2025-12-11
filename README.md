@@ -3,6 +3,7 @@
 
 
 
+
 ---
 
 ## 📅 Calendar Information
@@ -18,9 +19,9 @@
 
 **Status:** 🟢 ACTIVE  
 **Deadline:** November 22, 2026 at 11:59 PM  
-**Time Remaining:** 346 days, 4 hours, 37 minutes  
+**Time Remaining:** 346 days, 4 hours, 36 minutes  
 
-> **Note:** This branch closes at 11:59 PM on November 22, 2026. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+> **Note:** This branch closes at 11:59 PM IST (Mumbai Time) on November 22, 2026. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
 
 ---
 **Nano Creator (1k–10k followers)**
