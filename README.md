@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2028, Week 2, Friday Content Plan
+# Misfit Ravi - December 2028, Week 2, Saturday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The unpredictability of online culture
+### My top creator misfires
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the unpredictability of online culture.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on my top creator misfires.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the unpredictability of online culture
+   - Exploring my top creator misfires
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The unpredictability of online culture is always relevant  
+✅ **Timeless Topic:** My top creator misfires is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 2, December 2028 - Macro Creator Phase*
+*Saturday, Week 2, December 2028 - Macro Creator Phase*
