@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2027, Week 2, Friday Content Plan
+# Misfit Ravi - March 2027, Week 2, Saturday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why clarity scares people
+### Commitment issues disguised as trendiness
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why clarity scares people.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on commitment issues disguised as trendiness.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why clarity scares people
+   - Exploring commitment issues disguised as trendiness
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why clarity scares people is always relevant  
+✅ **Timeless Topic:** Commitment issues disguised as trendiness is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 2, March 2027 - Micro Creator Phase*
+*Saturday, Week 2, March 2027 - Micro Creator Phase*
