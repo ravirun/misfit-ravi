@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2026, Week 3, Monday Content Plan
+# Misfit Ravi - February 2026, Week 3, Tuesday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why gurus oversimplify everything
+### The unrealistic expectations of self-help advice
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why gurus oversimplify everything.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the unrealistic expectations of self-help advice.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why gurus oversimplify everything
+   - Exploring the unrealistic expectations of self-help advice
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why gurus oversimplify everything is always relevant  
+✅ **Timeless Topic:** The unrealistic expectations of self-help advice is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 3, February 2026 - Nano Creator Phase*
+*Tuesday, Week 3, February 2026 - Nano Creator Phase*
