@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2028, Week 2, Thursday Content Plan
+# Misfit Ravi - February 2028, Week 2, Friday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why we treat success as personal virtue
+### The hidden systems behind every success story
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why we treat success as personal virtue.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the hidden systems behind every success story.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why we treat success as personal virtue
+   - Exploring the hidden systems behind every success story
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why we treat success as personal virtue is always relevant  
+✅ **Timeless Topic:** The hidden systems behind every success story is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 2, February 2028 - Macro Creator Phase*
+*Friday, Week 2, February 2028 - Macro Creator Phase*
