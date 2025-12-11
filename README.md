@@ -1,18 +1,18 @@
-# Misfit Ravi - September 2027 Content Plan
+# Misfit Ravi - September 2027, Week 3 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Business of Outrage Machines
+### The Psychology of Consuming Controversy
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the business of outrage machines.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the psychology of consuming controversy.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the business of outrage machines
+   - Exploring the psychology of consuming controversy
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Business of Outrage Machines is always relevant  
+✅ **Timeless Topic:** The Psychology of Consuming Controversy is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*September 2027 - Micro Creator Phase*
+*Week 3, September 2027 - Micro Creator Phase*
