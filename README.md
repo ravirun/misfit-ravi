@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2028, Week 3, Tuesday Content Plan
+# Misfit Ravi - August 2028, Week 3, Wednesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of AI 'hacks'
+### Why creators think they can outsmart machines
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of ai 'hacks'.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why creators think they can outsmart machines.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of ai 'hacks'
+   - Exploring why creators think they can outsmart machines
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of AI 'hacks' is always relevant  
+✅ **Timeless Topic:** Why creators think they can outsmart machines is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 3, August 2028 - Macro Creator Phase*
+*Wednesday, Week 3, August 2028 - Macro Creator Phase*
