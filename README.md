@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2028, Week 3, Friday Content Plan
+# Misfit Ravi - March 2028, Week 3, Saturday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The attention fragmentation caused by alerts
+### Satire of notification-driven living
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the attention fragmentation caused by alerts.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of notification-driven living.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the attention fragmentation caused by alerts
+   - Exploring satire of notification-driven living
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The attention fragmentation caused by alerts is always relevant  
+✅ **Timeless Topic:** Satire of notification-driven living is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 3, March 2028 - Macro Creator Phase*
+*Saturday, Week 3, March 2028 - Macro Creator Phase*
