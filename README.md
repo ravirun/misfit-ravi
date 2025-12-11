@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2026, Week 3, Friday Content Plan
+# Misfit Ravi - July 2026, Week 3, Saturday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Performance vs expertise
+### How creators fake authority
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on performance vs expertise.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how creators fake authority.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring performance vs expertise
+   - Exploring how creators fake authority
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Performance vs expertise is always relevant  
+✅ **Timeless Topic:** How creators fake authority is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 3, July 2026 - Nano Creator Phase*
+*Saturday, Week 3, July 2026 - Nano Creator Phase*
