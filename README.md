@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2026, Week 1, Saturday Content Plan
+# Misfit Ravi - August 2026, Week 1, Sunday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why calmness seems boring
+### The culture of emotional exaggeration
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why calmness seems boring.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the culture of emotional exaggeration.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why calmness seems boring
+   - Exploring the culture of emotional exaggeration
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why calmness seems boring is always relevant  
+✅ **Timeless Topic:** The culture of emotional exaggeration is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 1, August 2026 - Nano Creator Phase*
+*Sunday, Week 1, August 2026 - Nano Creator Phase*
