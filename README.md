@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2027, Week 4, Thursday Content Plan
+# Misfit Ravi - August 2027, Week 4, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Are we optimizing for humans or machines?
+### The illusion of control over reach
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on are we optimizing for humans or machines?.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the illusion of control over reach.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring are we optimizing for humans or machines?
+   - Exploring the illusion of control over reach
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Are we optimizing for humans or machines? is always relevant  
+✅ **Timeless Topic:** The illusion of control over reach is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 4, August 2027 - Micro Creator Phase*
+*Friday, Week 4, August 2027 - Micro Creator Phase*
