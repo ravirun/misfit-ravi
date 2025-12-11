@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2026, Week 4, Tuesday Content Plan
+# Misfit Ravi - November 2026, Week 4, Wednesday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Social moments that feel painful
+### Why embarrassment shapes behavior
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on social moments that feel painful.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why embarrassment shapes behavior.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring social moments that feel painful
+   - Exploring why embarrassment shapes behavior
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Social moments that feel painful is always relevant  
+✅ **Timeless Topic:** Why embarrassment shapes behavior is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 4, November 2026 - Nano Creator Phase*
+*Wednesday, Week 4, November 2026 - Nano Creator Phase*
