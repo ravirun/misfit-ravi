@@ -1,18 +1,18 @@
-# Misfit Ravi - July 2026 Content Plan
+# Misfit Ravi - July 2026, Week 3 Content Plan
 
 **Nano Creator (1k–10k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Rise of Fake Experts (Including Me)
+### Why Social Media Rewards Confidence Over Competence
 
 ---
 
 ## Topic Overview
 
-A satirical look at how everyone has become an expert on everything, and the comedy of fake expertise in the modern age.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why social media rewards confidence over competence.
 
 ---
 
@@ -20,16 +20,16 @@ A satirical look at how everyone has become an expert on everything, and the com
 
 ### Key Themes
 
-- The rise of self-proclaimed experts
-- How easy it is to become an "expert"
-- The performance of expertise
-- Self-aware commentary on being a creator
+- Evergreen satirical commentary
+- Cultural observations
+- Human behavior patterns
+- Timeless insights
 
 ### Satirical Angle
 
-- Personal, relatable observations
+- Smart humor that makes people think
 - Self-aware commentary
-- Humor that makes people think
+- Relatable observations
 - Evergreen themes that won't date
 
 ### Content Format
@@ -37,37 +37,37 @@ A satirical look at how everyone has become an expert on everything, and the com
 - **Primary:** Medium-form video (3-10 minutes)
 - **Secondary:** Short-form clips for social media
 - **Style:** Personal, scrappy, authentic
-- **Tone:** Witty, observational, self-deprecating
+- **Tone:** Witty, observational, insightful
 
 ---
 
 ## Key Points to Cover
 
-1. **Fake Experts Everywhere**
-   - How easy it is to claim expertise
-   - The performance of knowledge
-   - Why we trust them
+1. **Core Theme**
+   - Exploring why social media rewards confidence over competence
+   - Finding the satirical angle
+   - Making it relatable and timeless
 
-2. **The Comedy**
-   - Making fun of ourselves
-   - Pointing out the absurdity
-   - Self-aware creator commentary
+2. **The Satire**
+   - Pointing out universal truths
+   - Finding humor in patterns
+   - Making people think while laughing
 
-3. **The Satire**
-   - Finding humor in expertise
-   - Relatable moments
-   - Making people think
+3. **Evergreen Elements**
+   - Content that ages well
+   - Timeless observations
+   - Rewatchable value
 
 ---
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Fake expertise is always relevant  
-✅ **Universal Appeal:** Everyone encounters this  
+✅ **Timeless Topic:** Why Social Media Rewards Confidence Over Competence is always relevant  
+✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
 
 ---
 
 *Building something timeless, one video at a time.*  
-*July 2026 - Nano Creator Phase*
+*Week 3, July 2026 - Nano Creator Phase*
