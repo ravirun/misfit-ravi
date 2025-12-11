@@ -1,18 +1,24 @@
-# Misfit Ravi - February 2028, Week 3 Content Plan
+# Misfit Ravi - February 2028, Week 3, Monday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Weekly Content Topic
+## Daily Content Topic
 
-### Why We Demand Honesty but Reward Performance
+### Why people claim to want authenticity but don't
+
+---
+
+## Week Theme
+
+**Why We Demand Honesty but Reward Performance**
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why we demand honesty but reward performance.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why people claim to want authenticity but don't.
 
 ---
 
@@ -44,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why we demand honesty but reward performance
+   - Exploring why people claim to want authenticity but don't
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -53,16 +59,16 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
    - Finding humor in patterns
    - Making people think while laughing
 
-3. **Evergreen Elements**
-   - Content that ages well
-   - Timeless observations
-   - Rewatchable value
+3. **Daily Focus**
+   - Single, focused idea
+   - Deeper cultural analysis
+   - High-production value
 
 ---
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why We Demand Honesty but Reward Performance is always relevant  
+✅ **Timeless Topic:** Why people claim to want authenticity but don't is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Week 3, February 2028 - Macro Creator Phase*
+*Monday, Week 3, February 2028 - Macro Creator Phase*
