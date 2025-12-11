@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2029, Week 1, Tuesday Content Plan
+# Misfit Ravi - January 2029, Week 1, Wednesday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The origins of human dominance obsession
+### How power-seeking is hardwired in the brain
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on the origins of human dominance obsession.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on how power-seeking is hardwired in the brain.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the origins of human dominance obsession
+   - Exploring how power-seeking is hardwired in the brain
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The origins of human dominance obsession is always relevant  
+✅ **Timeless Topic:** How power-seeking is hardwired in the brain is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 1, January 2029 - Mega Creator Phase*
+*Wednesday, Week 1, January 2029 - Mega Creator Phase*
