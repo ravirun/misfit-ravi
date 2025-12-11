@@ -1,4 +1,4 @@
-# Misfit Ravi - May 2029, Week 4, Monday Content Plan
+# Misfit Ravi - May 2029, Week 4, Tuesday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Traits of the 'ideal' 21st-century leader
+### Why contradictions define leadership today
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on traits of the 'ideal' 21st-century leader.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on why contradictions define leadership today.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring traits of the 'ideal' 21st-century leader
+   - Exploring why contradictions define leadership today
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Traits of the 'ideal' 21st-century leader is always relevant  
+✅ **Timeless Topic:** Why contradictions define leadership today is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 4, May 2029 - Mega Creator Phase*
+*Tuesday, Week 4, May 2029 - Mega Creator Phase*
