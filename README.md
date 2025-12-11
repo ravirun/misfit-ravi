@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2028, Week 4, Saturday Content Plan
+# Misfit Ravi - August 2028, Week 4, Sunday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How AI will amplify existing flaws
+### The future of automated bad decisions
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how ai will amplify existing flaws.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the future of automated bad decisions.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how ai will amplify existing flaws
+   - Exploring the future of automated bad decisions
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How AI will amplify existing flaws is always relevant  
+✅ **Timeless Topic:** The future of automated bad decisions is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 4, August 2028 - Macro Creator Phase*
+*Sunday, Week 4, August 2028 - Macro Creator Phase*
