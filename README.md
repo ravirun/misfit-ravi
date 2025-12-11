@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2027, Week 2, Friday Content Plan
+# Misfit Ravi - October 2027, Week 2, Saturday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why silence feels threatening
+### Satire of constant distraction
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why silence feels threatening.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of constant distraction.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why silence feels threatening
+   - Exploring satire of constant distraction
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why silence feels threatening is always relevant  
+✅ **Timeless Topic:** Satire of constant distraction is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 2, October 2027 - Micro Creator Phase*
+*Saturday, Week 2, October 2027 - Micro Creator Phase*
