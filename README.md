@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2028, Week 3, Thursday Content Plan
+# Misfit Ravi - October 2028, Week 3, Friday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of identity-based marketing
+### Why ads target emotions, not logic
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of identity-based marketing.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why ads target emotions, not logic.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of identity-based marketing
+   - Exploring why ads target emotions, not logic
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of identity-based marketing is always relevant  
+✅ **Timeless Topic:** Why ads target emotions, not logic is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 3, October 2028 - Macro Creator Phase*
+*Friday, Week 3, October 2028 - Macro Creator Phase*
