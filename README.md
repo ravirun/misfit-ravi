@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2027, Week 3, Saturday Content Plan
+# Misfit Ravi - October 2027, Week 3, Sunday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Satire of rest shame
+### Relearning the skill of doing nothing
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on satire of rest shame.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on relearning the skill of doing nothing.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring satire of rest shame
+   - Exploring relearning the skill of doing nothing
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Satire of rest shame is always relevant  
+✅ **Timeless Topic:** Relearning the skill of doing nothing is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 3, October 2027 - Micro Creator Phase*
+*Sunday, Week 3, October 2027 - Micro Creator Phase*
