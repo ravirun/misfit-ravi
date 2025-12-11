@@ -1,18 +1,18 @@
-# Misfit Ravi - August 2027 Content Plan
+# Misfit Ravi - August 2027, Week 3 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Rise of Algorithm Anxiety
+### Posting Anxiety: The New Social Disorder
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the rise of algorithm anxiety.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on posting anxiety: the new social disorder.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the rise of algorithm anxiety
+   - Exploring posting anxiety: the new social disorder
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Rise of Algorithm Anxiety is always relevant  
+✅ **Timeless Topic:** Posting Anxiety: The New Social Disorder is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*August 2027 - Micro Creator Phase*
+*Week 3, August 2027 - Micro Creator Phase*
