@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2026, Week 4, Wednesday Content Plan
+# Misfit Ravi - October 2026, Week 4, Thursday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How overstimulation eliminates stillness
+### Why boredom sparks creativity
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how overstimulation eliminates stillness.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why boredom sparks creativity.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how overstimulation eliminates stillness
+   - Exploring why boredom sparks creativity
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How overstimulation eliminates stillness is always relevant  
+✅ **Timeless Topic:** Why boredom sparks creativity is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 4, October 2026 - Nano Creator Phase*
+*Thursday, Week 4, October 2026 - Nano Creator Phase*
