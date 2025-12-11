@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2028, Week 2, Saturday Content Plan
+# Misfit Ravi - October 2028, Week 2, Sunday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The short-term high of consumption
+### Why retail therapy works… until it doesn't
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the short-term high of consumption.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why retail therapy works… until it doesn't.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the short-term high of consumption
+   - Exploring why retail therapy works… until it doesn't
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The short-term high of consumption is always relevant  
+✅ **Timeless Topic:** Why retail therapy works… until it doesn't is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 2, October 2028 - Macro Creator Phase*
+*Sunday, Week 2, October 2028 - Macro Creator Phase*
