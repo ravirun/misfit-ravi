@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2028, Week 1, Saturday Content Plan
+# Misfit Ravi - April 2028, Week 1, Sunday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why politics depends on cliffhangers
+### How viewers become emotionally invested
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why politics depends on cliffhangers.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how viewers become emotionally invested.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why politics depends on cliffhangers
+   - Exploring how viewers become emotionally invested
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why politics depends on cliffhangers is always relevant  
+✅ **Timeless Topic:** How viewers become emotionally invested is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 1, April 2028 - Macro Creator Phase*
+*Sunday, Week 1, April 2028 - Macro Creator Phase*
