@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2028, Week 1, Saturday Content Plan
+# Misfit Ravi - June 2028, Week 1, Sunday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The timeline of humanity's repeated failures
+### Why the future looks like the past
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the timeline of humanity's repeated failures.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why the future looks like the past.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the timeline of humanity's repeated failures
+   - Exploring why the future looks like the past
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The timeline of humanity's repeated failures is always relevant  
+✅ **Timeless Topic:** Why the future looks like the past is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 1, June 2028 - Macro Creator Phase*
+*Sunday, Week 1, June 2028 - Macro Creator Phase*
