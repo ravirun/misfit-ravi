@@ -1,4 +1,4 @@
-# Misfit Ravi - July 2028, Week 4, Saturday Content Plan
+# Misfit Ravi - July 2028, Week 4, Sunday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The psychology of sensational content
+### Why virality rewards emotional intensity
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the psychology of sensational content.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why virality rewards emotional intensity.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the psychology of sensational content
+   - Exploring why virality rewards emotional intensity
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The psychology of sensational content is always relevant  
+✅ **Timeless Topic:** Why virality rewards emotional intensity is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 4, July 2028 - Macro Creator Phase*
+*Sunday, Week 4, July 2028 - Macro Creator Phase*
