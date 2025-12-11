@@ -1,13 +1,29 @@
 # Misfit Ravi
 
 **Real Name:** Ravi Sharma  
-**Serial Entrepreneur**
+**Serial Entrepreneur & Satirical Infotainment Creator**
+
+> **Misfit Ravi** is a serial entrepreneur creating cinematic, evergreen satirical infotainment that distills complex cultural truths into funny, insightful stories. Building a timeless content brand in the satirical commentary and infotainment space.
 
 ---
 
 ## About
 
-**Misfit Ravi** (Ravi Sharma) is a **Serial Entrepreneur** and **Satirical Infotainment Creator** turning the chaos of modern life into sharp, witty commentary that makes people think, laugh, and feel understood. As a content creator specializing in **satirical infotainment**, I combine entertainment, social commentary, cultural analysis, humor, and insightful observations to create timeless, rewatchable content that resonates with audiences seeking smart, fun, and truth-revealing media.
+**Misfit Ravi** (Ravi Sharma) is a serial entrepreneur and satirical infotainment creator turning the chaos of modern life into sharp, witty commentary that makes people think, laugh, and feel understood. Specializing in evergreen content, satirical commentary, and infotainment that combines entertainment with social commentary, cultural analysis, and insightful observations.
+
+## Connect & Follow
+
+- **YouTube:** [@misfit-ravi](https://www.youtube.com/@misfit-ravi/)
+- **Instagram:** [@misfit.ravi](https://www.instagram.com/misfit.ravi/)
+- **X (Twitter):** [@ravirun1](https://x.com/ravirun1)
+- **LinkedIn:** [Ravi Sharma](https://www.linkedin.com/in/rs591090/)
+- **GitHub:** [@ravirun](https://github.com/ravirun)
+- **Pinterest:** [rs591090](https://in.pinterest.com/rs591090/) | [Pin Link](https://pin.it/34cLH9tkH)
+
+## My Work
+
+- **Portfolio:** [Rocky on the Rise](https://rockyontherise.netlify.app/)
+- **Agency:** [The 3 Studio](https://the3studio.vercel.app/)
 
 ---
 
@@ -161,22 +177,13 @@ It is both timeless and ownable — perfect for long-term royalties.
 
 ---
 
-## Connect & Follow
+---
 
-### Social Media
-- **YouTube:** [@misfit-ravi](https://www.youtube.com/@misfit-ravi/)
-- **Instagram:** [@misfit.ravi](https://www.instagram.com/misfit.ravi/)
-- **X (Twitter):** [@ravirun1](https://x.com/ravirun1)
-- **LinkedIn:** [Ravi Sharma](https://www.linkedin.com/in/rs591090/)
-- **GitHub:** [@ravirun](https://github.com/ravirun)
-- **Pinterest:** [rs591090](https://in.pinterest.com/rs591090/) | [Pin Link](https://pin.it/34cLH9tkH)
+## Keywords & Topics
 
-### Portfolio & Agency
-- **Portfolio:** [Rocky On The Rise](https://rockyontherise.netlify.app/)
-- **Agency:** [THE 3 STUDIO](https://the3studio.vercel.app/)
+**Primary Keywords:** Serial Entrepreneur, Satirical Infotainment Creator, Content Creator, Social Commentary, Cultural Analysis, Evergreen Content, Video Creator, YouTube Creator, Content Entrepreneur, Digital Media, Brand Building, Satirical Commentary, Infotainment, Cultural Commentary
 
-### Website
-- **Landing Page:** [View HTML Site](index.html)
+**Related Topics:** Entrepreneurship, Content Strategy, Video Production, Social Media, Digital Marketing, Brand Development, Creative Content, Satirical Comedy, Infotainment Videos, Cultural Critique, Modern Life Commentary, Thought Leadership
 
 ---
 

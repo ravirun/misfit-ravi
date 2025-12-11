@@ -1,0 +1,37 @@
+# GitHub Pages Configuration for Misfit Ravi
+# Site Settings
+title: "Misfit Ravi | Serial Entrepreneur & Satirical Infotainment Creator"
+description: "Serial entrepreneur creating cinematic, evergreen satirical infotainment that distills complex cultural truths into funny, insightful stories."
+author: "Ravi Sharma"
+email: ""
+url: "https://ravirun.github.io"
+baseurl: "/misfit-ravi"
+
+# Build Settings
+theme: jekyll-theme-minimal
+plugins:
+  - jekyll-feed
+  - jekyll-sitemap
+  - jekyll-seo-tag
+
+# SEO Settings
+lang: en
+locale: en_US
+
+# Social Media Links
+github_username: ravirun
+twitter_username: ravirun1
+instagram_username: misfit.ravi
+youtube_username: misfit-ravi
+linkedin_username: rs591090
+pinterest_username: rs591090
+
+# Additional Links
+portfolio_url: https://rockyontherise.netlify.app/
+agency_url: https://the3studio.vercel.app/
+
+# Exclude from processing
+exclude:
+  - README.md
+  - LICENSE
+  - .gitignore
