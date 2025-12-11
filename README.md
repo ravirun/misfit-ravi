@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2027, Week 2, Thursday Content Plan
+# Misfit Ravi - January 2027, Week 2, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The performance of 'relatability'
+### Why we exaggerate for attention
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the performance of 'relatability'.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why we exaggerate for attention.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the performance of 'relatability'
+   - Exploring why we exaggerate for attention
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The performance of 'relatability' is always relevant  
+✅ **Timeless Topic:** Why we exaggerate for attention is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 2, January 2027 - Micro Creator Phase*
+*Friday, Week 2, January 2027 - Micro Creator Phase*
