@@ -1,18 +1,18 @@
-# Misfit Ravi - March 2028 Content Plan
+# Misfit Ravi - March 2028, Week 3 Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Attention Economy: How We Became the Product
+### The Trap of Constant Notifications
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the attention economy: how we became the product.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the trap of constant notifications.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the attention economy: how we became the product
+   - Exploring the trap of constant notifications
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Attention Economy: How We Became the Product is always relevant  
+✅ **Timeless Topic:** The Trap of Constant Notifications is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*March 2028 - Macro Creator Phase*
+*Week 3, March 2028 - Macro Creator Phase*
