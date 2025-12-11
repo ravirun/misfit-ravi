@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2026, Week 4, Wednesday Content Plan
+# Misfit Ravi - March 2026, Week 4, Thursday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why we overshare for attention
+### How comments impact self-worth
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why we overshare for attention.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how comments impact self-worth.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why we overshare for attention
+   - Exploring how comments impact self-worth
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why we overshare for attention is always relevant  
+✅ **Timeless Topic:** How comments impact self-worth is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 4, March 2026 - Nano Creator Phase*
+*Thursday, Week 4, March 2026 - Nano Creator Phase*
