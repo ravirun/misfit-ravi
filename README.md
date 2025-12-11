@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2027, Week 2, Tuesday Content Plan
+# Misfit Ravi - February 2027, Week 2, Wednesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The psychology behind digital social credit
+### Why numbers dictate value online
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the psychology behind digital social credit.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why numbers dictate value online.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the psychology behind digital social credit
+   - Exploring why numbers dictate value online
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The psychology behind digital social credit is always relevant  
+✅ **Timeless Topic:** Why numbers dictate value online is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 2, February 2027 - Micro Creator Phase*
+*Wednesday, Week 2, February 2027 - Micro Creator Phase*
