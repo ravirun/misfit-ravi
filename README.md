@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2028, Week 3, Wednesday Content Plan
+# Misfit Ravi - December 2028, Week 3, Thursday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why the pressure increased
+### Satire of new creator responsibilities
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why the pressure increased.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of new creator responsibilities.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why the pressure increased
+   - Exploring satire of new creator responsibilities
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why the pressure increased is always relevant  
+✅ **Timeless Topic:** Satire of new creator responsibilities is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 3, December 2028 - Macro Creator Phase*
+*Thursday, Week 3, December 2028 - Macro Creator Phase*
