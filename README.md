@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2027, Week 4, Thursday Content Plan
+# Misfit Ravi - December 2027, Week 4, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The joy of building something meaningful
+### How year 2 strengthened my mindset
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the joy of building something meaningful.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how year 2 strengthened my mindset.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the joy of building something meaningful
+   - Exploring how year 2 strengthened my mindset
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The joy of building something meaningful is always relevant  
+✅ **Timeless Topic:** How year 2 strengthened my mindset is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 4, December 2027 - Micro Creator Phase*
+*Friday, Week 4, December 2027 - Micro Creator Phase*
