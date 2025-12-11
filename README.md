@@ -1,4 +1,4 @@
-# Misfit Ravi - May 2026, Week 1, Wednesday Content Plan
+# Misfit Ravi - May 2026, Week 1, Thursday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How adults fake confidence daily
+### The myth of maturity
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how adults fake confidence daily.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the myth of maturity.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how adults fake confidence daily
+   - Exploring the myth of maturity
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How adults fake confidence daily is always relevant  
+✅ **Timeless Topic:** The myth of maturity is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 1, May 2026 - Nano Creator Phase*
+*Thursday, Week 1, May 2026 - Nano Creator Phase*
