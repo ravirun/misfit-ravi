@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2028, Week 3, Saturday Content Plan
+# Misfit Ravi - August 2028, Week 3, Sunday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The comedy of human-machine conflict
+### Why AI wins by doing nothing
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the comedy of human-machine conflict.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why ai wins by doing nothing.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the comedy of human-machine conflict
+   - Exploring why ai wins by doing nothing
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The comedy of human-machine conflict is always relevant  
+✅ **Timeless Topic:** Why AI wins by doing nothing is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Saturday, Week 3, August 2028 - Macro Creator Phase*
+*Sunday, Week 3, August 2028 - Macro Creator Phase*
