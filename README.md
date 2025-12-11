@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2026, Week 1, Tuesday Content Plan
+# Misfit Ravi - August 2026, Week 1, Wednesday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The dopamine cycle of anger
+### How anger becomes content
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the dopamine cycle of anger.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how anger becomes content.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the dopamine cycle of anger
+   - Exploring how anger becomes content
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The dopamine cycle of anger is always relevant  
+✅ **Timeless Topic:** How anger becomes content is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 1, August 2026 - Nano Creator Phase*
+*Wednesday, Week 1, August 2026 - Nano Creator Phase*
