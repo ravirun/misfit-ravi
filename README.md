@@ -1,18 +1,18 @@
-# Misfit Ravi - April 2027 Content Plan
+# Misfit Ravi - April 2027, Week 4 Content Plan
 
 **Micro Creator (10k–100k followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### Why Society Rewards Loud Opinions Over Measured Ones
+### The Entertainment Value of Bad Opinions
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why society rewards loud opinions over measured ones.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the entertainment value of bad opinions.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why society rewards loud opinions over measured ones
+   - Exploring the entertainment value of bad opinions
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why Society Rewards Loud Opinions Over Measured Ones is always relevant  
+✅ **Timeless Topic:** The Entertainment Value of Bad Opinions is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*April 2027 - Micro Creator Phase*
+*Week 4, April 2027 - Micro Creator Phase*
