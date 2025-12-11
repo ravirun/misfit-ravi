@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2028, Week 1, Thursday Content Plan
+# Misfit Ravi - November 2028, Week 1, Friday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why society embraces silly fads
+### The comedy of ultra-temporary obsessions
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why society embraces silly fads.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the comedy of ultra-temporary obsessions.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why society embraces silly fads
+   - Exploring the comedy of ultra-temporary obsessions
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why society embraces silly fads is always relevant  
+✅ **Timeless Topic:** The comedy of ultra-temporary obsessions is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 1, November 2028 - Macro Creator Phase*
+*Friday, Week 1, November 2028 - Macro Creator Phase*
