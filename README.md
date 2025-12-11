@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2029, Week 3, Wednesday Content Plan
+# Misfit Ravi - March 2029, Week 3, Thursday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How propaganda exploits memory
+### Satire of 'heard it once, so it must be true'
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on how propaganda exploits memory.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on satire of 'heard it once, so it must be true'.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how propaganda exploits memory
+   - Exploring satire of 'heard it once, so it must be true'
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How propaganda exploits memory is always relevant  
+✅ **Timeless Topic:** Satire of 'heard it once, so it must be true' is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 3, March 2029 - Mega Creator Phase*
+*Thursday, Week 3, March 2029 - Mega Creator Phase*
