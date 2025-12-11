@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2027, Week 4, Monday Content Plan
+# Misfit Ravi - February 2027, Week 4, Tuesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How attention became a resource
+### Winners and losers in the attention economy
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how attention became a resource.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on winners and losers in the attention economy.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how attention became a resource
+   - Exploring winners and losers in the attention economy
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How attention became a resource is always relevant  
+✅ **Timeless Topic:** Winners and losers in the attention economy is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 4, February 2027 - Micro Creator Phase*
+*Tuesday, Week 4, February 2027 - Micro Creator Phase*
