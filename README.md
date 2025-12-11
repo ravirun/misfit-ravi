@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2028, Week 4, Wednesday Content Plan
+# Misfit Ravi - March 2028, Week 4, Thursday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The invisible job of feeding algorithms
+### Why attention extraction mirrors real workplaces
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the invisible job of feeding algorithms.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why attention extraction mirrors real workplaces.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the invisible job of feeding algorithms
+   - Exploring why attention extraction mirrors real workplaces
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The invisible job of feeding algorithms is always relevant  
+✅ **Timeless Topic:** Why attention extraction mirrors real workplaces is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 4, March 2028 - Macro Creator Phase*
+*Thursday, Week 4, March 2028 - Macro Creator Phase*
