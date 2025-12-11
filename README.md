@@ -1,4 +1,4 @@
-# Misfit Ravi - June 2026, Week 2, Wednesday Content Plan
+# Misfit Ravi - June 2026, Week 2, Thursday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The brain's obsession with what-ifs
+### Predicting disasters that never happen
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the brain's obsession with what-ifs.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on predicting disasters that never happen.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the brain's obsession with what-ifs
+   - Exploring predicting disasters that never happen
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The brain's obsession with what-ifs is always relevant  
+✅ **Timeless Topic:** Predicting disasters that never happen is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 2, June 2026 - Nano Creator Phase*
+*Thursday, Week 2, June 2026 - Nano Creator Phase*
