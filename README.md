@@ -1,4 +1,4 @@
-# Misfit Ravi - December 2026, Week 2, Thursday Content Plan
+# Misfit Ravi - December 2026, Week 2, Friday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The emotional highs and lows of creating
+### How I developed my voice
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the emotional highs and lows of creating.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how i developed my voice.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the emotional highs and lows of creating
+   - Exploring how i developed my voice
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The emotional highs and lows of creating is always relevant  
+✅ **Timeless Topic:** How I developed my voice is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 2, December 2026 - Nano Creator Phase*
+*Friday, Week 2, December 2026 - Nano Creator Phase*
