@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2026, Week 3, Friday Content Plan
+# Misfit Ravi - January 2026, Week 3, Saturday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why purpose feels further away than ever
+### The psychology behind expecting more
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why purpose feels further away than ever.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the psychology behind expecting more.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why purpose feels further away than ever
+   - Exploring the psychology behind expecting more
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why purpose feels further away than ever is always relevant  
+✅ **Timeless Topic:** The psychology behind expecting more is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 3, January 2026 - Nano Creator Phase*
+*Saturday, Week 3, January 2026 - Nano Creator Phase*
