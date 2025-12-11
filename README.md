@@ -1,5 +1,25 @@
-# Misfit Ravi - May 2027, Week 3, Sunday Content Plan
+# Misfit Ravi - May 21, 2027 (Friday) Content Plan
 
+---
+
+## 📅 Calendar Information
+
+**Actual Date:** May 21, 2027 (2027-05-21)  
+**Day of Week:** Friday  
+**Week:** Week 3 of May 2027  
+**Deadline:** May 21, 2027 at 11:59 PM (2027-05-21 23:59:59)
+
+---
+
+## ⏰ Branch Status
+
+**Status:** 🟢 ACTIVE  
+**Deadline:** May 21, 2027 at 11:59 PM  
+**Time Remaining:** 526 days, 4 hours, 48 minutes  
+
+> **Note:** This branch closes at 11:59 PM on May 21, 2027. After the deadline, the branch remains visible and accessible but is marked as closed. Content can still be viewed and indexed by search engines.
+
+---
 **Micro Creator (10k–100k followers)**
 
 ---
