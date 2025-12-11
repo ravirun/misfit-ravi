@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2027, Week 2, Monday Content Plan
+# Misfit Ravi - January 2027, Week 2, Tuesday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The psychology behind online performance
+### Why your online self is a curated character
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the psychology behind online performance.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why your online self is a curated character.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the psychology behind online performance
+   - Exploring why your online self is a curated character
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The psychology behind online performance is always relevant  
+✅ **Timeless Topic:** Why your online self is a curated character is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 2, January 2027 - Micro Creator Phase*
+*Tuesday, Week 2, January 2027 - Micro Creator Phase*
