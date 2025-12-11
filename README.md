@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2027, Week 3, Friday Content Plan
+# Misfit Ravi - March 2027, Week 3, Saturday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The psychology of endless browsing
+### Why dating apps create FOMO
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the psychology of endless browsing.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on why dating apps create fomo.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the psychology of endless browsing
+   - Exploring why dating apps create fomo
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The psychology of endless browsing is always relevant  
+✅ **Timeless Topic:** Why dating apps create FOMO is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 3, March 2027 - Micro Creator Phase*
+*Saturday, Week 3, March 2027 - Micro Creator Phase*
