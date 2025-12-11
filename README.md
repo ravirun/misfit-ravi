@@ -1,4 +1,4 @@
-# Misfit Ravi - May 2026, Week 3, Tuesday Content Plan
+# Misfit Ravi - May 2026, Week 3, Wednesday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Tasks adults do out of obligation
+### The performance of responsibility
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on tasks adults do out of obligation.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the performance of responsibility.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring tasks adults do out of obligation
+   - Exploring the performance of responsibility
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Tasks adults do out of obligation is always relevant  
+✅ **Timeless Topic:** The performance of responsibility is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 3, May 2026 - Nano Creator Phase*
+*Wednesday, Week 3, May 2026 - Nano Creator Phase*
