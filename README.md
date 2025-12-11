@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2027, Week 1, Thursday Content Plan
+# Misfit Ravi - March 2027, Week 1, Friday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Romance driven by UI design
+### Gamified affection explained
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on romance driven by ui design.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on gamified affection explained.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring romance driven by ui design
+   - Exploring gamified affection explained
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Romance driven by UI design is always relevant  
+✅ **Timeless Topic:** Gamified affection explained is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 1, March 2027 - Micro Creator Phase*
+*Friday, Week 1, March 2027 - Micro Creator Phase*
