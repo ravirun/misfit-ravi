@@ -1,4 +1,4 @@
-# Misfit Ravi - September 2028, Week 2, Monday Content Plan
+# Misfit Ravi - September 2028, Week 2, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why follower count = credibility
+### How society equates numbers with value
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why follower count = credibility.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how society equates numbers with value.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why follower count = credibility
+   - Exploring how society equates numbers with value
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why follower count = credibility is always relevant  
+✅ **Timeless Topic:** How society equates numbers with value is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 2, September 2028 - Macro Creator Phase*
+*Tuesday, Week 2, September 2028 - Macro Creator Phase*
