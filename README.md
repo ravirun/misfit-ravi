@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2028, Week 4, Thursday Content Plan
+# Misfit Ravi - February 2028, Week 4, Friday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why people preach ideals they don't follow
+### The satire of moral inconsistency
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why people preach ideals they don't follow.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the satire of moral inconsistency.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why people preach ideals they don't follow
+   - Exploring the satire of moral inconsistency
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why people preach ideals they don't follow is always relevant  
+✅ **Timeless Topic:** The satire of moral inconsistency is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 4, February 2028 - Macro Creator Phase*
+*Friday, Week 4, February 2028 - Macro Creator Phase*
