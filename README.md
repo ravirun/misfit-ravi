@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2029, Week 4, Thursday Content Plan
+# Misfit Ravi - January 2029, Week 4, Friday Content Plan
 
 **Mega Creator (1M+ followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why children mimic adult power struggles
+### How ego shapes daily interactions
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on why children mimic adult power struggles.
+An evergreen satirical exploration designed for mega creator (1m+ followers), focusing on how ego shapes daily interactions.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why children mimic adult power struggles
+   - Exploring how ego shapes daily interactions
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why children mimic adult power struggles is always relevant  
+✅ **Timeless Topic:** How ego shapes daily interactions is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for mega creator (1m+ followers), fo
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 4, January 2029 - Mega Creator Phase*
+*Friday, Week 4, January 2029 - Mega Creator Phase*
