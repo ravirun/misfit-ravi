@@ -1,4 +1,4 @@
-# Misfit Ravi - September 2028, Week 1, Friday Content Plan
+# Misfit Ravi - September 2028, Week 1, Saturday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why numbers determine respect
+### How digital persona builds hierarchy
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why numbers determine respect.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on how digital persona builds hierarchy.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why numbers determine respect
+   - Exploring how digital persona builds hierarchy
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why numbers determine respect is always relevant  
+✅ **Timeless Topic:** How digital persona builds hierarchy is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 1, September 2028 - Macro Creator Phase*
+*Saturday, Week 1, September 2028 - Macro Creator Phase*
