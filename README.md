@@ -1,4 +1,4 @@
-# Misfit Ravi - March 2027, Week 4, Wednesday Content Plan
+# Misfit Ravi - March 2027, Week 4, Thursday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The 'what can you offer me' mindset
+### How people treat partners like products
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the 'what can you offer me' mindset.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how people treat partners like products.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the 'what can you offer me' mindset
+   - Exploring how people treat partners like products
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The 'what can you offer me' mindset is always relevant  
+✅ **Timeless Topic:** How people treat partners like products is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 4, March 2027 - Micro Creator Phase*
+*Thursday, Week 4, March 2027 - Micro Creator Phase*
