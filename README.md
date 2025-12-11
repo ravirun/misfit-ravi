@@ -1,18 +1,18 @@
-# Misfit Ravi - September 2028 Content Plan
+# Misfit Ravi - September 2028, Week 3 Content Plan
 
 **Macro Creator (100k–1M followers)**
 
 ---
 
-## Content Topic
+## Weekly Content Topic
 
-### The Social Hierarchy of the Internet
+### The Invisible Ranking System of Digital Life
 
 ---
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the social hierarchy of the internet.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on the invisible ranking system of digital life.
 
 ---
 
@@ -44,7 +44,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the social hierarchy of the internet
+   - Exploring the invisible ranking system of digital life
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -62,7 +62,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The Social Hierarchy of the Internet is always relevant  
+✅ **Timeless Topic:** The Invisible Ranking System of Digital Life is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -70,4 +70,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*September 2028 - Macro Creator Phase*
+*Week 3, September 2028 - Macro Creator Phase*
