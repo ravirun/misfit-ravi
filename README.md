@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2028, Week 2, Tuesday Content Plan
+# Misfit Ravi - October 2028, Week 2, Wednesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why sadness triggers spending
+### Satire of shopping as self-care
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why sadness triggers spending.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on satire of shopping as self-care.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why sadness triggers spending
+   - Exploring satire of shopping as self-care
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why sadness triggers spending is always relevant  
+✅ **Timeless Topic:** Satire of shopping as self-care is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Tuesday, Week 2, October 2028 - Macro Creator Phase*
+*Wednesday, Week 2, October 2028 - Macro Creator Phase*
