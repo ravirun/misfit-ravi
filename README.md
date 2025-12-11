@@ -1,4 +1,4 @@
-# Misfit Ravi - August 2026, Week 2, Thursday Content Plan
+# Misfit Ravi - August 2026, Week 2, Friday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why nuance never trends
+### The psychology of seeking drama
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why nuance never trends.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the psychology of seeking drama.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why nuance never trends
+   - Exploring the psychology of seeking drama
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why nuance never trends is always relevant  
+✅ **Timeless Topic:** The psychology of seeking drama is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 2, August 2026 - Nano Creator Phase*
+*Friday, Week 2, August 2026 - Nano Creator Phase*
