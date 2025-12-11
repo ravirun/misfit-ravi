@@ -1,4 +1,4 @@
-# Misfit Ravi - October 2026, Week 3, Thursday Content Plan
+# Misfit Ravi - October 2026, Week 3, Friday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How endless feeds trap attention
+### Why stopping feels impossible
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how endless feeds trap attention.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why stopping feels impossible.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how endless feeds trap attention
+   - Exploring why stopping feels impossible
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How endless feeds trap attention is always relevant  
+✅ **Timeless Topic:** Why stopping feels impossible is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Thursday, Week 3, October 2026 - Nano Creator Phase*
+*Friday, Week 3, October 2026 - Nano Creator Phase*
