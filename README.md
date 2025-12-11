@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2027, Week 3, Wednesday Content Plan
+# Misfit Ravi - February 2027, Week 3, Thursday Content Plan
 
 **Micro Creator (10k–100k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The emotional rush of going viral
+### How creators gamble with content
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on the emotional rush of going viral.
+An evergreen satirical exploration designed for micro creator (10k–100k followers), focusing on how creators gamble with content.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the emotional rush of going viral
+   - Exploring how creators gamble with content
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The emotional rush of going viral is always relevant  
+✅ **Timeless Topic:** How creators gamble with content is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for micro creator (10k–100k follow
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 3, February 2027 - Micro Creator Phase*
+*Thursday, Week 3, February 2027 - Micro Creator Phase*
