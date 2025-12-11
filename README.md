@@ -1,4 +1,4 @@
-# Misfit Ravi - November 2026, Week 1, Monday Content Plan
+# Misfit Ravi - November 2026, Week 1, Tuesday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Everyday habits we never question
+### Why we mimic other people's emotions
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on everyday habits we never question.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why we mimic other people's emotions.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring everyday habits we never question
+   - Exploring why we mimic other people's emotions
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Everyday habits we never question is always relevant  
+✅ **Timeless Topic:** Why we mimic other people's emotions is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 1, November 2026 - Nano Creator Phase*
+*Tuesday, Week 1, November 2026 - Nano Creator Phase*
