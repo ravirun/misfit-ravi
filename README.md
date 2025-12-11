@@ -1,4 +1,4 @@
-# Misfit Ravi - April 2028, Week 2, Monday Content Plan
+# Misfit Ravi - April 2028, Week 2, Tuesday Content Plan
 
 **Macro Creator (100k–1M followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### Why debates prioritize performance over substance
+### Theater techniques used by politicians
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on why debates prioritize performance over substance.
+An evergreen satirical exploration designed for macro creator (100k–1m followers), focusing on theater techniques used by politicians.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring why debates prioritize performance over substance
+   - Exploring theater techniques used by politicians
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** Why debates prioritize performance over substance is always relevant  
+✅ **Timeless Topic:** Theater techniques used by politicians is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for macro creator (100k–1m followe
 ---
 
 *Building something timeless, one video at a time.*  
-*Monday, Week 2, April 2028 - Macro Creator Phase*
+*Tuesday, Week 2, April 2028 - Macro Creator Phase*
