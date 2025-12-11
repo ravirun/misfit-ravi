@@ -1,4 +1,4 @@
-# Misfit Ravi - January 2026, Week 2, Wednesday Content Plan
+# Misfit Ravi - January 2026, Week 2, Thursday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### How professionalism is mostly acting
+### Why job titles are identity costumes
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on how professionalism is mostly acting.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on why job titles are identity costumes.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring how professionalism is mostly acting
+   - Exploring why job titles are identity costumes
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** How professionalism is mostly acting is always relevant  
+✅ **Timeless Topic:** Why job titles are identity costumes is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Wednesday, Week 2, January 2026 - Nano Creator Phase*
+*Thursday, Week 2, January 2026 - Nano Creator Phase*
