@@ -1,4 +1,4 @@
-# Misfit Ravi - February 2026, Week 1, Friday Content Plan
+# Misfit Ravi - February 2026, Week 1, Saturday Content Plan
 
 **Nano Creator (1k–10k followers)**
 
@@ -6,7 +6,7 @@
 
 ## Daily Content Topic
 
-### The dopamine hit of checking a box
+### When planning becomes procrastination
 
 ---
 
@@ -18,7 +18,7 @@
 
 ## Topic Overview
 
-An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on the dopamine hit of checking a box.
+An evergreen satirical exploration designed for nano creator (1k–10k followers), focusing on when planning becomes procrastination.
 
 ---
 
@@ -50,7 +50,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ## Key Points to Cover
 
 1. **Core Theme**
-   - Exploring the dopamine hit of checking a box
+   - Exploring when planning becomes procrastination
    - Finding the satirical angle
    - Making it relatable and timeless
 
@@ -68,7 +68,7 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 
 ## Evergreen Elements
 
-✅ **Timeless Topic:** The dopamine hit of checking a box is always relevant  
+✅ **Timeless Topic:** When planning becomes procrastination is always relevant  
 ✅ **Universal Appeal:** Everyone can relate to this  
 ✅ **Satirical Edge:** Smart humor that makes people think  
 ✅ **Rewatchable:** Content that ages well  
@@ -76,4 +76,4 @@ An evergreen satirical exploration designed for nano creator (1k–10k followers
 ---
 
 *Building something timeless, one video at a time.*  
-*Friday, Week 1, February 2026 - Nano Creator Phase*
+*Saturday, Week 1, February 2026 - Nano Creator Phase*
